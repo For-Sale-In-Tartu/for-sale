@@ -14,7 +14,9 @@
 - have the receipt
 
 # Laundry bag for all your intimates 
-![](?raw=true)
+![laundry bag](https://github.com/For-Sale-In-Tartu/for-sale/blob/49d835549d9eb171fea3cc40a3bf8c0990a34cf7/for-sale-item-photos/laundry-bag-1.jpg?raw=true)
+#### men should never purchase such things
+![laundry bag](https://github.com/For-Sale-In-Tartu/for-sale/blob/49d835549d9eb171fea3cc40a3bf8c0990a34cf7/for-sale-item-photos/laundry-bag-2..jpg?raw=true)
 
 # Leather jacket 250€
 - like new
@@ -37,9 +39,9 @@
 # Financial calculator
 ## Calculate how much poorer inflation is making you
 ![boobs](https://github.com/For-Sale-In-Tartu/for-sale/blob/5cba676eebd90dd9c90e8f0a4a2b264381339097/for-sale-item-photos/calculator-1.jpg?raw=true)
-### spell 'boobs' and make your friends laugh
 ![boobs](https://github.com/For-Sale-In-Tartu/for-sale/blob/5cba676eebd90dd9c90e8f0a4a2b264381339097/for-sale-item-photos/calculator-2.jpg?raw=true)
 ![boobs](https://github.com/For-Sale-In-Tartu/for-sale/blob/5cba676eebd90dd9c90e8f0a4a2b264381339097/for-sale-item-photos/calculator-3.jpg?raw=true)
+### spell 'boobs' and make your friends laugh
 ![boobs](https://github.com/For-Sale-In-Tartu/for-sale/blob/5cba676eebd90dd9c90e8f0a4a2b264381339097/for-sale-item-photos/calculator-4.jpg?raw=true)
 
 # Microfiber towel 5€
@@ -52,6 +54,7 @@
 ![microfiber towel](https://github.com/For-Sale-In-Tartu/for-sale/blob/5cba676eebd90dd9c90e8f0a4a2b264381339097/for-sale-item-photos/towel-1.jpg?raw=true)
 ![microfiber towel](https://github.com/For-Sale-In-Tartu/for-sale/blob/5cba676eebd90dd9c90e8f0a4a2b264381339097/for-sale-item-photos/towel-2.jpg?raw=true)
 buying this towel and wearing it on your head can turn you into a cute Asian girl too 
+![take off that towel, cute girl](https://github.com/For-Sale-In-Tartu/for-sale/blob/e44b2b61b793f364aa558cdb061a3a55fdefa4dd/for-sale-item-photos/asiangirl.jpg?raw=true)
 
 Premium high quality, multipurpose microfiber towels for women, men, kids, babies and even pets. 
 
@@ -73,13 +76,31 @@ Compared to a cotton towel, it takes up 87% less storage space, is 60% lighter w
 - never used
 
 # Insulated mug 5€
-- never used
+#### never used
+![insulated mug](https://github.com/For-Sale-In-Tartu/for-sale/blob/49d835549d9eb171fea3cc40a3bf8c0990a34cf7/for-sale-item-photos/mug-1.jpg?raw=true)
+bring vodka to work and nobody will ever know.
+Our little secret ;)
+![insulated mug](https://github.com/For-Sale-In-Tartu/for-sale/blob/49d835549d9eb171fea3cc40a3bf8c0990a34cf7/for-sale-item-photos/mug-2.jpg?raw=true)
+see that? that's where your vodka should go
+![insulated mug](https://github.com/For-Sale-In-Tartu/for-sale/blob/49d835549d9eb171fea3cc40a3bf8c0990a34cf7/for-sale-item-photos/mug-3.jpg?raw=true)
+![insulated mug](https://github.com/For-Sale-In-Tartu/for-sale/blob/49d835549d9eb171fea3cc40a3bf8c0990a34cf7/for-sale-item-photos/mug-4.jpg?raw=true)
+#### if you buy this mug, your bank account will get bigger. True story
+![insulated mug](https://github.com/For-Sale-In-Tartu/for-sale/blob/49d835549d9eb171fea3cc40a3bf8c0990a34cf7/for-sale-item-photos/mug-5.jpg?raw=true)
+![insulated mug](?raw=true)
+
+# Mask 3€
+#### never used, obviously
+because buying someone's used mask...that would be gross
+![face diaper](https://github.com/For-Sale-In-Tartu/for-sale/blob/49d835549d9eb171fea3cc40a3bf8c0990a34cf7/for-sale-item-photos/mask-1.jpg?raw=true)
+#### Buy this mask today and never die from kovid again
+![obedience mask](https://github.com/For-Sale-In-Tartu/for-sale/blob/49d835549d9eb171fea3cc40a3bf8c0990a34cf7/for-sale-item-photos/mask-2.jpg?raw=true)
+
 ![](?raw=true)
 ![](?raw=true)
 ![](?raw=true)
 ![](?raw=true)
 ![](?raw=true)
-![](?raw=true)
+#### And if you do die from kovid, I'll refund 110% of the purchase price! Woah!
 
 
 
