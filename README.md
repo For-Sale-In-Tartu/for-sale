@@ -3,9 +3,7 @@
 ### Check back often for new items for sale
 
 # Jump rope 5€
-![jump rope](/for-sale-item-photos/jump-rope.jpg?raw=true)
-
-![jump rope](jump-rope.jpg?raw=true)
+![jump rope](https://github.com/For-Sale-In-Tartu/for-sale/blob/1aba15d32ee2aaa504baa09384a88f6a88bc9b02/for-sale-item-photos/jump-rope.jpg?raw=true)
 - great condition
 
 # Viru Valge vodka 8€ per bottle or 22€ for all three
@@ -50,9 +48,7 @@ Compared to a cotton towel, it takes up 87% less storage space, is 60% lighter w
 - never used
 
 # HDMI cable 5€
-![HDMI cable](/for-sale-item-photos/HDMI-cable.jpg?raw=true)
-
 ![HDMI cable](https://github.com/For-Sale-In-Tartu/for-sale/blob/c54d9d4ea9d6008b911056c72cbefe17059fe2b3/for-sale-item-photos/HDMI-cable.jpg?raw=true)
 
 # RGB/VGA male-to-male cable 2€
-![RGB/VGA male-to-male cable](/for-sale-item-photos/RGB-VGA%20Display%20Cable%2015pin%20Male%20to%20Male.jpg?raw=true)
+![RGB/VGA male-to-male cable](https://github.com/For-Sale-In-Tartu/for-sale/blob/1aba15d32ee2aaa504baa09384a88f6a88bc9b02/for-sale-item-photos/RGB-VGA%20Display%20Cable%2015pin%20Male%20to%20Male.jpg?raw=true)
