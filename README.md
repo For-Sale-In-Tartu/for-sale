@@ -49,8 +49,8 @@ Compared to a cotton towel, it takes up 87% less storage space, is 60% lighter w
 # Wool handbag 10€
 - never used
 
-# Wool handbag 5€
-![jump rope](/for-sale-item-photos/HDMI-cable.jpg?raw=true)
+# HDMI cable 5€
+![HDMI cable](/for-sale-item-photos/HDMI-cable.jpg?raw=true)
 
 # RGB/VGA male-to-male cable 2€
-![jump rope](/for-sale-item-photos/RGB-VGA%20Display%20Cable%2015pin%20Male%20to%20Male.jpg?raw=true)
+![RGB/VGA male-to-male cable](/for-sale-item-photos/RGB-VGA%20Display%20Cable%2015pin%20Male%20to%20Male.jpg?raw=true)
