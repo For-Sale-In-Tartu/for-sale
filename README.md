@@ -4,6 +4,8 @@
 
 # Jump rope 5€
 ![jump rope](/for-sale-item-photos/jump-rope.jpg?raw=true)
+
+![jump rope](jump-rope.jpg?raw=true)
 - great condition
 
 # Viru Valge vodka 8€ per bottle or 22€ for all three
