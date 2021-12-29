@@ -5,9 +5,10 @@
 # Jump rope 5€
 ![jump rope](https://github.com/For-Sale-In-Tartu/for-sale/blob/1aba15d32ee2aaa504baa09384a88f6a88bc9b02/for-sale-item-photos/jump-rope.jpg?raw=true)
 - great condition
-- Turn your ass into Pretty Boy Floyd https://www.youtube.com/watch?v=Z5m1O5niSr0
+- Turn your ass into Pretty Boy Floyd 
+  - https://www.youtube.com/watch?v=Z5m1O5niSr0
 
-# Anna viin kurat siia
+# Anna kuradi viin siia
 ## Viru Valge vodka 8€ per bottle or 22€ for all three
 #### unopened, obviously
 #### The highest quality vodka you can buy
@@ -35,10 +36,9 @@ holds at least 92 bras and 69 panties
 #### This jacket is the real deal. So heavy and warm.
 ![leather jacket](https://github.com/For-Sale-In-Tartu/for-sale/blob/e1cc656bb4f3ec0586393cef110ebb45631567bd/for-sale-item-photos/jacket-10.jpg?raw=true)
 #### Soft, smooth, supple genuine cow leather. Accept no imitations
-![leather jacket](?raw=true)
+![leather jacket](https://github.com/For-Sale-In-Tartu/for-sale/blob/e1cc656bb4f3ec0586393cef110ebb45631567bd/for-sale-item-photos/jacket-7.jpg?raw=true)
 #### chicks dig guys in leather
 whoa baby
-![leather jacket](https://github.com/For-Sale-In-Tartu/for-sale/blob/e1cc656bb4f3ec0586393cef110ebb45631567bd/for-sale-item-photos/jacket-7.jpg?raw=true)
 ![leather jacket](https://github.com/For-Sale-In-Tartu/for-sale/blob/e1cc656bb4f3ec0586393cef110ebb45631567bd/for-sale-item-photos/jacket-6.jpg?raw=true)
 #### So 
 ![leather jacket](https://github.com/For-Sale-In-Tartu/for-sale/blob/e1cc656bb4f3ec0586393cef110ebb45631567bd/for-sale-item-photos/jacket-5.jpg?raw=true)
@@ -67,7 +67,7 @@ whoa baby
 
 ![microfiber towel](https://github.com/For-Sale-In-Tartu/for-sale/blob/5cba676eebd90dd9c90e8f0a4a2b264381339097/for-sale-item-photos/towel-1.jpg?raw=true)
 ![microfiber towel](https://github.com/For-Sale-In-Tartu/for-sale/blob/5cba676eebd90dd9c90e8f0a4a2b264381339097/for-sale-item-photos/towel-2.jpg?raw=true)
-buying this towel and wearing it on your head can turn you into a cute Asian girl too 
+#### Buying this towel and wearing it on your head can turn you into a cute Asian girl too 
 ![take off that towel, cute girl](https://github.com/For-Sale-In-Tartu/for-sale/blob/e44b2b61b793f364aa558cdb061a3a55fdefa4dd/for-sale-item-photos/asiangirl.jpg?raw=true)
 
 Premium high quality, multipurpose microfiber towels for women, men, kids, babies and even pets. 
@@ -100,7 +100,6 @@ see that? that's where your vodka should go
 ![insulated mug](https://github.com/For-Sale-In-Tartu/for-sale/blob/49d835549d9eb171fea3cc40a3bf8c0990a34cf7/for-sale-item-photos/mug-4.jpg?raw=true)
 #### if you buy this mug, your bank account will get bigger. True story
 ![insulated mug](https://github.com/For-Sale-In-Tartu/for-sale/blob/49d835549d9eb171fea3cc40a3bf8c0990a34cf7/for-sale-item-photos/mug-5.jpg?raw=true)
-![insulated mug](?raw=true)
 
 # Mask 3€
 #### never used, obviously
@@ -132,10 +131,6 @@ because buying someone's used mask...that would be gross
 ![felt handbag](https://github.com/For-Sale-In-Tartu/for-sale/blob/e1cc656bb4f3ec0586393cef110ebb45631567bd/for-sale-item-photos/bag-8.jpg?raw=true)
 #### Proudly made in Estonia and not in China!
 ![felt handbag](https://github.com/For-Sale-In-Tartu/for-sale/blob/e1cc656bb4f3ec0586393cef110ebb45631567bd/for-sale-item-photos/bag-9.jpg?raw=true)
-![felt handbag](?raw=true)
-![felt handbag](?raw=true)
-![felt handbag](?raw=true)
-![felt handbag](?raw=true)
 
 
 # HDMI cable 5€
