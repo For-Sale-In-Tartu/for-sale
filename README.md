@@ -2,6 +2,12 @@
 
 ### Check back often for new items for sale
 
+# WPark passes 70€ value only 55€
+
+![WPark front.jpeg](https://github.com/For-Sale-In-Tartu/for-sale/blob/5d7e0a42cf83ec9518ce734565aa56602cd681f9/for-sale-item-photos/WPark%20front.jpeg)
+![WPark back.jpeg](https://github.com/For-Sale-In-Tartu/for-sale/blob/5d7e0a42cf83ec9518ce734565aa56602cd681f9/for-sale-item-photos/WPark%20back.jpeg)
+- Hit the wake park this summer at a 21% discount off the retail price!
+
 # Jump rope 5€
 ![jump rope](https://github.com/For-Sale-In-Tartu/for-sale/blob/1aba15d32ee2aaa504baa09384a88f6a88bc9b02/for-sale-item-photos/jump-rope.jpg?raw=true)
 - great condition
