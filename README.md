@@ -15,7 +15,7 @@
   - https://www.youtube.com/watch?v=Z5m1O5niSr0
 
 # Anna kuradi viin siia
-## Viru Valge vodka 8€ per bottle or 22€ for all three
+## Viru Valge vodka 8€ per bottle or 15€ for both (one sold already)
 #### unopened, obviously
 #### The highest quality vodka you can buy
 #### Still have the receipt if you want proof that I bought these
