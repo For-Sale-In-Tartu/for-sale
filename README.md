@@ -3,7 +3,7 @@
 
 ### Check back often for new items for sale
 
-# WPark passes 70€ value only 55€
+# WPark passes 70€ value only 50€
 
 ![WPark passes front](https://github.com/For-Sale-In-Tartu/for-sale/blob/6d70ef34a8fac6d051a5ab2259dc1a58b664f466/for-sale-item-photos/WPark-front.jpeg?raw=true)
 ![WPark passes back](https://github.com/For-Sale-In-Tartu/for-sale/blob/6d70ef34a8fac6d051a5ab2259dc1a58b664f466/for-sale-item-photos/WPark-back.jpeg?raw=true)
@@ -14,14 +14,6 @@
 - great condition
 - Turn your ass into Pretty Boy Floyd 
   - https://www.youtube.com/watch?v=Z5m1O5niSr0
-
-# Anna kuradi viin siia
-## Viru Valge vodka 8€ per bottle or 15€ for both (one sold already)
-#### unopened, obviously
-#### The highest quality vodka you can buy
-#### Still have the receipt if you want proof that I bought these
-## You can even buy after 22:00.....and I won't say a word to the cops
-![vodka](https://github.com/For-Sale-In-Tartu/for-sale/blob/5cba676eebd90dd9c90e8f0a4a2b264381339097/for-sale-item-photos/vodka.jpg?raw=true)
 
 # Laundry bag for all your intimates 
 ![laundry bag](https://github.com/For-Sale-In-Tartu/for-sale/blob/49d835549d9eb171fea3cc40a3bf8c0990a34cf7/for-sale-item-photos/laundry-bag-1.jpg?raw=true)
