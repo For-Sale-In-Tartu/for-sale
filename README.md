@@ -6,9 +6,9 @@
 # Jump rope 5€
 ### SOLD!
 ![jump rope](https://github.com/For-Sale-In-Tartu/for-sale/blob/1aba15d32ee2aaa504baa09384a88f6a88bc9b02/for-sale-item-photos/jump-rope.jpg?raw=true)
-- great condition
-- Turn your ass into Pretty Boy Floyd 
-  - https://www.youtube.com/watch?v=Z5m1O5niSr0
+~~- great condition~~
+~~- Turn your ass into Pretty Boy Floyd ~~
+  ~~- https://www.youtube.com/watch?v=Z5m1O5niSr0~~
 
 
 # Leather jacket 250€
