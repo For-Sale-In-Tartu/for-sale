@@ -3,25 +3,13 @@
 
 ### Check back often for new items for sale
 
-# WPark passes 70€ value only 50€
-
-![WPark passes front](https://github.com/For-Sale-In-Tartu/for-sale/blob/6d70ef34a8fac6d051a5ab2259dc1a58b664f466/for-sale-item-photos/WPark-front.jpeg?raw=true)
-![WPark passes back](https://github.com/For-Sale-In-Tartu/for-sale/blob/6d70ef34a8fac6d051a5ab2259dc1a58b664f466/for-sale-item-photos/WPark-back.jpeg?raw=true)
-- Hit the wake park this summer at a 21% discount off the retail price!
-
 # Jump rope 5€
+### SOLD!
 ![jump rope](https://github.com/For-Sale-In-Tartu/for-sale/blob/1aba15d32ee2aaa504baa09384a88f6a88bc9b02/for-sale-item-photos/jump-rope.jpg?raw=true)
 - great condition
 - Turn your ass into Pretty Boy Floyd 
   - https://www.youtube.com/watch?v=Z5m1O5niSr0
 
-# Laundry bag for all your intimates 
-![laundry bag](https://github.com/For-Sale-In-Tartu/for-sale/blob/49d835549d9eb171fea3cc40a3bf8c0990a34cf7/for-sale-item-photos/laundry-bag-1.jpg?raw=true)
-#### big mistake i made was buying something pink
-#### buy something else on this list and will throw in free!
-#### still in good condition	
-holds at least 92 bras and 69 panties
-![laundry bag](https://github.com/For-Sale-In-Tartu/for-sale/blob/49d835549d9eb171fea3cc40a3bf8c0990a34cf7/for-sale-item-photos/laundry-bag-2..jpg?raw=true)
 
 # Leather jacket 250€
 - like new
@@ -56,6 +44,7 @@ whoa baby
 ![boobs](https://github.com/For-Sale-In-Tartu/for-sale/blob/5cba676eebd90dd9c90e8f0a4a2b264381339097/for-sale-item-photos/calculator-3.jpg?raw=true)
 ### spell 'boobs' and make your friends laugh
 ![boobs](https://github.com/For-Sale-In-Tartu/for-sale/blob/5cba676eebd90dd9c90e8f0a4a2b264381339097/for-sale-item-photos/calculator-4.jpg?raw=true)
+
 
 # Microfiber towel 5€
 #### This super absorbent towel soaks up 7 times its weight and wrings out 90% dry 
@@ -100,6 +89,7 @@ see that? that's where your vodka should go
 #### if you buy this mug, your bank account will get bigger. True story
 ![insulated mug](https://github.com/For-Sale-In-Tartu/for-sale/blob/49d835549d9eb171fea3cc40a3bf8c0990a34cf7/for-sale-item-photos/mug-5.jpg?raw=true)
 
+
 # Mask 3€
 #### never used, obviously
 because buying someone's used mask...that would be gross
@@ -136,6 +126,16 @@ because buying someone's used mask...that would be gross
 #### Buy this so you can stream Viimne reliikvia and quote every. single. line. in this movie. Every one.
 ![HDMI cable](https://github.com/For-Sale-In-Tartu/for-sale/blob/c54d9d4ea9d6008b911056c72cbefe17059fe2b3/for-sale-item-photos/HDMI-cable.jpg?raw=true)
 
+
 # RGB/VGA male-to-male cable 2€
 #### don't get any dirty ideas...
 ![RGB/VGA male-to-male cable](https://github.com/For-Sale-In-Tartu/for-sale/blob/1aba15d32ee2aaa504baa09384a88f6a88bc9b02/for-sale-item-photos/RGB-VGA%20Display%20Cable%2015pin%20Male%20to%20Male.jpg?raw=true)
+
+
+# Laundry bag for all your intimates 
+![laundry bag](https://github.com/For-Sale-In-Tartu/for-sale/blob/49d835549d9eb171fea3cc40a3bf8c0990a34cf7/for-sale-item-photos/laundry-bag-1.jpg?raw=true)
+#### big mistake i made was buying something pink
+#### buy something else on this list and will throw in free!
+#### still in good condition	
+holds at least 92 bras and 69 panties
+![laundry bag](https://github.com/For-Sale-In-Tartu/for-sale/blob/49d835549d9eb171fea3cc40a3bf8c0990a34cf7/for-sale-item-photos/laundry-bag-2..jpg?raw=true)
