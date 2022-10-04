@@ -67,13 +67,13 @@ Compared to a cotton towel, it takes up 87% less storage space, is 60% lighter w
 # Insulated mug 4€
 #### Never used
 ![insulated mug](https://github.com/For-Sale-In-Tartu/for-sale/blob/49d835549d9eb171fea3cc40a3bf8c0990a34cf7/for-sale-item-photos/mug-1.jpg?raw=true)
-bring vodka to work and nobody will ever know.
-Our little secret ;)
+#### Bring vodka to work and nobody will ever know
+#### Our little secret ;)
 ![insulated mug](https://github.com/For-Sale-In-Tartu/for-sale/blob/49d835549d9eb171fea3cc40a3bf8c0990a34cf7/for-sale-item-photos/mug-2.jpg?raw=true)
-see that? that's where your vodka should go
+#### See that? That's where your vodka should go
 ![insulated mug](https://github.com/For-Sale-In-Tartu/for-sale/blob/49d835549d9eb171fea3cc40a3bf8c0990a34cf7/for-sale-item-photos/mug-3.jpg?raw=true)
 ![insulated mug](https://github.com/For-Sale-In-Tartu/for-sale/blob/49d835549d9eb171fea3cc40a3bf8c0990a34cf7/for-sale-item-photos/mug-4.jpg?raw=true)
-#### If you buy this mug, your bank account will get bigger. True story
+#### If you buy this mug, your Swedbank account will get bigger. True story
 ![insulated mug](https://github.com/For-Sale-In-Tartu/for-sale/blob/49d835549d9eb171fea3cc40a3bf8c0990a34cf7/for-sale-item-photos/mug-5.jpg?raw=true)
 
 
