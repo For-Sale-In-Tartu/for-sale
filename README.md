@@ -5,21 +5,22 @@
 
 
 # Wool handbag 15€
-#### never used
+#### Never used
 ![felt handbag](https://github.com/For-Sale-In-Tartu/for-sale/blob/e1cc656bb4f3ec0586393cef110ebb45631567bd/for-sale-item-photos/bag-1.jpg?raw=true)
 ![felt handbag](https://github.com/For-Sale-In-Tartu/for-sale/blob/e1cc656bb4f3ec0586393cef110ebb45631567bd/for-sale-item-photos/bag-2.jpg?raw=true)
-#### so stylish
+#### So stylish
 ![felt handbag](https://github.com/For-Sale-In-Tartu/for-sale/blob/e1cc656bb4f3ec0586393cef110ebb45631567bd/for-sale-item-photos/bag-3.jpg?raw=true)
 ![felt handbag](https://github.com/For-Sale-In-Tartu/for-sale/blob/e1cc656bb4f3ec0586393cef110ebb45631567bd/for-sale-item-photos/bag-4.jpg?raw=true)
-#### makes you look taller, slimmer and sexier
+#### Makes you look taller, slimmer and sexier
 ![felt handbag](https://github.com/For-Sale-In-Tartu/for-sale/blob/e1cc656bb4f3ec0586393cef110ebb45631567bd/for-sale-item-photos/bag-5.jpg?raw=true)
 ![felt handbag](https://github.com/For-Sale-In-Tartu/for-sale/blob/e1cc656bb4f3ec0586393cef110ebb45631567bd/for-sale-item-photos/bag-6.jpg?raw=true)
-#### matches your eyes
+#### Matches your eyes
 ![felt handbag](https://github.com/For-Sale-In-Tartu/for-sale/blob/e1cc656bb4f3ec0586393cef110ebb45631567bd/for-sale-item-photos/bag-7.jpg?raw=true)
 ![felt handbag](https://github.com/For-Sale-In-Tartu/for-sale/blob/e1cc656bb4f3ec0586393cef110ebb45631567bd/for-sale-item-photos/bag-8.jpg?raw=true)
 #### Proudly made in Estonia and not in China!
 ![felt handbag](https://github.com/For-Sale-In-Tartu/for-sale/blob/e1cc656bb4f3ec0586393cef110ebb45631567bd/for-sale-item-photos/bag-9.jpg?raw=true)
 ### Regular price: 79€ https://nordhale.com/product/holm-2/
+### Save 54€! Whoaaaahhhhhhhhhh!!!!!!
 
 
 # Financial calculator
@@ -64,7 +65,7 @@ Compared to a cotton towel, it takes up 87% less storage space, is 60% lighter w
 
 
 # Insulated mug 4€
-#### never used
+#### Never used
 ![insulated mug](https://github.com/For-Sale-In-Tartu/for-sale/blob/49d835549d9eb171fea3cc40a3bf8c0990a34cf7/for-sale-item-photos/mug-1.jpg?raw=true)
 bring vodka to work and nobody will ever know.
 Our little secret ;)
@@ -72,7 +73,7 @@ Our little secret ;)
 see that? that's where your vodka should go
 ![insulated mug](https://github.com/For-Sale-In-Tartu/for-sale/blob/49d835549d9eb171fea3cc40a3bf8c0990a34cf7/for-sale-item-photos/mug-3.jpg?raw=true)
 ![insulated mug](https://github.com/For-Sale-In-Tartu/for-sale/blob/49d835549d9eb171fea3cc40a3bf8c0990a34cf7/for-sale-item-photos/mug-4.jpg?raw=true)
-#### if you buy this mug, your bank account will get bigger. True story
+#### If you buy this mug, your bank account will get bigger. True story
 ![insulated mug](https://github.com/For-Sale-In-Tartu/for-sale/blob/49d835549d9eb171fea3cc40a3bf8c0990a34cf7/for-sale-item-photos/mug-5.jpg?raw=true)
 
 
@@ -81,18 +82,17 @@ see that? that's where your vodka should go
 - barely used
 - still has the tags
 ![leather jacket](https://github.com/For-Sale-In-Tartu/for-sale/blob/e1cc656bb4f3ec0586393cef110ebb45631567bd/for-sale-item-photos/jacket-12.jpg?raw=true)
-#### purchased brand new in New York
-#### and kept in pristine condition
+#### Purchased brand new in New York
+#### Kept in pristine condition
 #### Buy this jacket and they'll let you star in Top Gun 2
 ![leather jacket](https://github.com/For-Sale-In-Tartu/for-sale/blob/e1cc656bb4f3ec0586393cef110ebb45631567bd/for-sale-item-photos/jacket-11.jpg?raw=true)
 #### This jacket is the real deal. So heavy and warm.
 ![leather jacket](https://github.com/For-Sale-In-Tartu/for-sale/blob/e1cc656bb4f3ec0586393cef110ebb45631567bd/for-sale-item-photos/jacket-10.jpg?raw=true)
 #### Soft, smooth, supple genuine cow leather. Accept no imitations
 ![leather jacket](https://github.com/For-Sale-In-Tartu/for-sale/blob/e1cc656bb4f3ec0586393cef110ebb45631567bd/for-sale-item-photos/jacket-7.jpg?raw=true)
-#### chicks dig guys in leather
-whoa baby
+#### Chicks dig guys in leather...whoa baby
 ![leather jacket](https://github.com/For-Sale-In-Tartu/for-sale/blob/e1cc656bb4f3ec0586393cef110ebb45631567bd/for-sale-item-photos/jacket-6.jpg?raw=true)
-#### So 
+#### So sexy
 ![leather jacket](https://github.com/For-Sale-In-Tartu/for-sale/blob/e1cc656bb4f3ec0586393cef110ebb45631567bd/for-sale-item-photos/jacket-5.jpg?raw=true)
 ![leather jacket](https://github.com/For-Sale-In-Tartu/for-sale/blob/e1cc656bb4f3ec0586393cef110ebb45631567bd/for-sale-item-photos/jacket-8.jpg?raw=true)
 ![leather jacket](https://github.com/For-Sale-In-Tartu/for-sale/blob/e1cc656bb4f3ec0586393cef110ebb45631567bd/for-sale-item-photos/jacket-9.jpg?raw=true)
@@ -103,12 +103,12 @@ whoa baby
 
 
 # Mask 1€
-#### never used, obviously
+#### Never used, obviously
 because buying someone's used mask...that would be gross
 ![face diaper](https://github.com/For-Sale-In-Tartu/for-sale/blob/49d835549d9eb171fea3cc40a3bf8c0990a34cf7/for-sale-item-photos/mask-1.jpg?raw=true)
 #### Buy this mask today and never die from kovid again
 ![obedience mask](https://github.com/For-Sale-In-Tartu/for-sale/blob/49d835549d9eb171fea3cc40a3bf8c0990a34cf7/for-sale-item-photos/mask-2.jpg?raw=true)
-#### and if you buy this mask, you'll get a free gift
+#### Buy this mask and you'll get a free gift
 ![kovid sucks](https://github.com/For-Sale-In-Tartu/for-sale/blob/e1cc656bb4f3ec0586393cef110ebb45631567bd/for-sale-item-photos/bioblock-1.jpg?raw=true)
 ![kovid sucks](https://github.com/For-Sale-In-Tartu/for-sale/blob/e1cc656bb4f3ec0586393cef110ebb45631567bd/for-sale-item-photos/bioblock-2.jpg?raw=true)
 ![kovid sucks](https://github.com/For-Sale-In-Tartu/for-sale/blob/e1cc656bb4f3ec0586393cef110ebb45631567bd/for-sale-item-photos/bioblock-3.jpg?raw=true)
@@ -130,7 +130,7 @@ because buying someone's used mask...that would be gross
 
 
 # RGB/VGA male-to-male cable 2€
-#### don't get any dirty ideas...
+#### Don't get any dirty ideas...
 ![RGB/VGA male-to-male cable](https://github.com/For-Sale-In-Tartu/for-sale/blob/1aba15d32ee2aaa504baa09384a88f6a88bc9b02/for-sale-item-photos/RGB-VGA%20Display%20Cable%2015pin%20Male%20to%20Male.jpg?raw=true)
 
 
