@@ -136,8 +136,8 @@ because buying someone's used mask...that would be gross
 
 # Laundry bag for all your intimates 
 ![laundry bag](https://github.com/For-Sale-In-Tartu/for-sale/blob/49d835549d9eb171fea3cc40a3bf8c0990a34cf7/for-sale-item-photos/laundry-bag-1.jpg?raw=true)
-#### big mistake I made was buying something pink
-#### buy something else on this list and will throw in free!
-#### still in good condition	
+#### Biggest mistake I made was buying something pink
+#### Buy something else on this list and will throw in free!
+#### Still in good condition	
 holds at least 92 bras and 69 panties
 ![laundry bag](https://github.com/For-Sale-In-Tartu/for-sale/blob/49d835549d9eb171fea3cc40a3bf8c0990a34cf7/for-sale-item-photos/laundry-bag-2..jpg?raw=true)
