@@ -140,10 +140,11 @@ because buying someone's used mask...that would be gross
 ![RGB/VGA male-to-male cable](https://github.com/For-Sale-In-Tartu/for-sale/blob/1aba15d32ee2aaa504baa09384a88f6a88bc9b02/for-sale-item-photos/RGB-VGA%20Display%20Cable%2015pin%20Male%20to%20Male.jpg?raw=true)
 
 
-# Laundry bag for all your intimates 
+# Laundry bag for all your intimates
+### SOLD!
 ![laundry bag](https://github.com/For-Sale-In-Tartu/for-sale/blob/49d835549d9eb171fea3cc40a3bf8c0990a34cf7/for-sale-item-photos/laundry-bag-1.jpg?raw=true)
-#### Biggest mistake I made was buying something pink
-#### Buy something else on this list and will throw in free!
-#### Still in good condition	
-holds at least 92 bras and 69 panties
+#### ~~Biggest mistake I made was buying something pink~~
+#### ~~Buy something else on this list and will throw in free!~~
+#### ~~Still in good condition~~
+~~holds at least 92 bras and 69 panties~~
 ![laundry bag](https://github.com/For-Sale-In-Tartu/for-sale/blob/49d835549d9eb171fea3cc40a3bf8c0990a34cf7/for-sale-item-photos/laundry-bag-2..jpg?raw=true)
