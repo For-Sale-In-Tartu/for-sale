@@ -5,13 +5,13 @@
 
 
 # Leather jacket 250€
-- like new
-- barely used
-- still has the tags
-![leather jacket](https://github.com/For-Sale-In-Tartu/for-sale/blob/e1cc656bb4f3ec0586393cef110ebb45631567bd/for-sale-item-photos/jacket-12.jpg?raw=true)
 #### Purchased brand new in New York
 #### Kept in pristine condition
 #### Buy this jacket and they'll let you star in Top Gun 2
+![leather jacket](https://github.com/For-Sale-In-Tartu/for-sale/blob/e1cc656bb4f3ec0586393cef110ebb45631567bd/for-sale-item-photos/jacket-12.jpg?raw=true)
+#### Like new
+#### Barely used
+#### Still has the tags
 ![leather jacket](https://github.com/For-Sale-In-Tartu/for-sale/blob/e1cc656bb4f3ec0586393cef110ebb45631567bd/for-sale-item-photos/jacket-11.jpg?raw=true)
 #### This jacket is the real deal. So heavy and warm.
 ![leather jacket](https://github.com/For-Sale-In-Tartu/for-sale/blob/e1cc656bb4f3ec0586393cef110ebb45631567bd/for-sale-item-photos/jacket-10.jpg?raw=true)
