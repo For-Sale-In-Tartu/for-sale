@@ -20,7 +20,7 @@
 #### Proudly made in Estonia and not in China!
 ![felt handbag](https://github.com/For-Sale-In-Tartu/for-sale/blob/e1cc656bb4f3ec0586393cef110ebb45631567bd/for-sale-item-photos/bag-9.jpg?raw=true)
 ### Regular price: 79€ https://nordhale.com/product/holm-2/
-### Save 54€! Whoaaaahhhhhhhhhh!!!!!!
+### Save 64€! Whoaaaahhhhhhhhhh!!!!!!
 
 
 # Financial calculator 20€
