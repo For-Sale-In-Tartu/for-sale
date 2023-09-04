@@ -37,7 +37,7 @@ Paid €50 but can let it go for €25
 # IT swag
 Attention computer geeks: show the world how much you love Microsoft and Big Tech and scoop up this IT swag before Bill Gates or Steve Jobs (from the grave) swoop in and outbid you for these totally awesome items
 
-Buying this super rad stuff totally increases your chances of getting an IT job and being rich and famous
+Buying this super rad stuff totally increases your chances of getting an IT FAANG job and becoming rich and famous
 
 Four pairs of IT socks
 
