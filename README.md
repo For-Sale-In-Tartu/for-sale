@@ -4,6 +4,64 @@
 ### Check back often for new items for sale
 
 
+# Super duper cool yellow Explore brand backpack
+It's actually great for exploring Estonia, University of Tartu, Möku, outer space or the depths of the oceans
+
+They can see you from space in this sleek and stylish backpack
+
+In immaculate condition
+
+No scratches, tears, stains or marks
+
+Fits your laptop, books, a hoodie and your lunch (that bullies won't want to take from you because you're so stylish)
+
+Only used a handful of times
+
+Discontinued style, so you can be sure that you won't see anyone else in the world with this cool backpack, dude!
+
+https://explore-eu.com/
+
+Paid €50 but can let it go for €25
+
+![Yellow_backpack](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Backpack-1.jpeg?raw=true)
+
+
+# IT swag
+Attention computer geeks: show the world how much you love Microsoft and Big Tech and scoop up this IT swag before Bill Gates or Steve Jobs (from the grave) swoop in and outbid you for these totally awesome items
+
+Buying this super rad stuff totally increases your chances of getting an IT job and being rich and famous
+
+Four pairs of IT socks
+
+Two water bottles
+
+Microsoft canvas bag
+
+€10 for everything
+
+
+# Peterson books
+12 Rules for Life & Beyond Order
+
+€5 each or €8 for both
+
+Buying both of these books will help you meet chicks, dudes, get better grades in school and make boatloads of money. Will probably whiten your teeth too.
+
+Please don't let Zuck cancel me because I'm selling JP books on FB
+
+
+# Logitech Marathon M705 Mouse
+Great for scrolling through porn or FB Marketplace ads (and gaming too if you have no social life)
+
+Never used
+
+In original packaging
+
+Never opened
+
+€25
+
+
 # Leather jacket 250€
 #### Purchased brand new in New York
 #### Kept in pristine condition
