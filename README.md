@@ -25,6 +25,14 @@ Paid €50 but can let it go for €25
 
 ![Yellow_backpack](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Backpack-1.jpeg?raw=true)
 
+![Yellow_backpack](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Backpack-2.jpeg?raw=true)
+
+![Yellow_backpack](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Backpack-3.jpeg?raw=true)
+
+![Yellow_backpack](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Backpack-4.jpeg?raw=true)
+
+![Yellow_backpack](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Backpack-5.jpeg?raw=true)
+
 
 # IT swag
 Attention computer geeks: show the world how much you love Microsoft and Big Tech and scoop up this IT swag before Bill Gates or Steve Jobs (from the grave) swoop in and outbid you for these totally awesome items
@@ -39,6 +47,8 @@ Microsoft canvas bag
 
 €10 for everything
 
+![IT swag](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/IT-swag.jpeg?raw=true)
+
 
 # Peterson books
 12 Rules for Life & Beyond Order
@@ -47,7 +57,9 @@ Microsoft canvas bag
 
 Buying both of these books will help you meet chicks, dudes, get better grades in school and make boatloads of money. Will probably whiten your teeth too.
 
-Please don't let Zuck cancel me because I'm selling JP books on FB
+Please don't let Zuck cancel me because I'm selling JP books online
+
+![Peterson books](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Peterson-books.jpeg?raw=true)
 
 
 # Logitech Marathon M705 Mouse
@@ -60,6 +72,10 @@ In original packaging
 Never opened
 
 €25
+
+![Logitech mouse](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Mouse-1.jpeg?raw=true)
+
+![Logitech mouse](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Mouse-2.jpeg?raw=true)
 
 
 # Leather jacket 250€
