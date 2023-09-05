@@ -34,21 +34,6 @@ Paid €50 but can let it go for €25
 ![Yellow_backpack](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Backpack-5.jpeg?raw=true)
 
 
-# IT swag
-Attention computer geeks: show the world how much you love Microsoft and Big Tech and scoop up this IT swag before Bill Gates or Steve Jobs (from the grave) swoop in and outbid you for these totally awesome items
-
-Buying this super rad stuff totally increases your chances of getting an IT FAANG job and becoming rich and famous
-
-Four pairs of IT socks
-
-Two water bottles
-
-Microsoft canvas bag
-
-€10 for everything
-
-![IT swag](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/IT-swag.jpeg?raw=true)
-
 
 # Peterson books
 12 Rules for Life & Beyond Order
@@ -125,6 +110,23 @@ because buying someone's used mask...that would be gross
 # RGB/VGA male-to-male cable 2€
 #### Don't get any dirty ideas...
 ![RGB/VGA male-to-male cable](https://github.com/For-Sale-In-Tartu/for-sale/blob/1aba15d32ee2aaa504baa09384a88f6a88bc9b02/for-sale-item-photos/RGB-VGA%20Display%20Cable%2015pin%20Male%20to%20Male.jpg?raw=true)
+
+
+# IT swag
+### SOLD!
+~~Attention computer geeks: show the world how much you love Microsoft and Big Tech and scoop up this IT swag before Bill Gates or Steve Jobs (from the grave) swoop in and outbid you for these totally awesome items~~
+
+~~Buying this super rad stuff totally increases your chances of getting an IT FAANG job and becoming rich and famous~~
+
+~~Four pairs of IT socks~~
+
+~~Two water bottles~~
+
+~~Microsoft canvas bag~~
+
+~~€10 for everything~~
+
+![IT swag](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/IT-swag.jpeg?raw=true)
 
 
 # Nordhale Holm Unisex handbag 15€
