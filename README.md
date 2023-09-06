@@ -121,38 +121,6 @@ It's a plug-and-play bike that you can ride around today for a short ride to sch
 
 
 
-
-# Super duper cool yellow Explore brand backpack
-It's actually great for exploring Estonia, University of Tartu, Möku, outer space or the depths of the oceans
-
-They can see you from space in this sleek and stylish backpack
-
-In immaculate condition
-
-No scratches, tears, stains or marks
-
-Fits your laptop, books, a hoodie and your lunch (that bullies won't want to take from you because you're so stylish)
-
-Only used a handful of times
-
-Discontinued style, so you can be sure that you won't see anyone else in the world with this cool backpack, dude!
-
-https://explore-eu.com/
-
-Paid €50 but can let it go for €25
-
-![Yellow_backpack](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Backpack-1.jpeg?raw=true)
-
-![Yellow_backpack](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Backpack-2.jpeg?raw=true)
-
-![Yellow_backpack](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Backpack-3.jpeg?raw=true)
-
-![Yellow_backpack](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Backpack-4.jpeg?raw=true)
-
-![Yellow_backpack](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Backpack-5.jpeg?raw=true)
-
-
-
 # Peterson books
 12 Rules for Life & Beyond Order
 
@@ -270,6 +238,37 @@ because buying someone's used mask...that would be gross
 # RGB/VGA male-to-male cable 2€
 #### Don't get any dirty ideas...
 ![RGB/VGA male-to-male cable](https://github.com/For-Sale-In-Tartu/for-sale/blob/1aba15d32ee2aaa504baa09384a88f6a88bc9b02/for-sale-item-photos/RGB-VGA%20Display%20Cable%2015pin%20Male%20to%20Male.jpg?raw=true)
+
+
+# Super duper cool yellow Explore brand backpack
+### SOLD!
+~~It's actually great for exploring Estonia, University of Tartu, Möku, outer space or the depths of the oceans~~
+
+~~They can see you from space in this sleek and stylish backpack~~
+
+~~In immaculate condition~~
+
+~~No scratches, tears, stains or marks~~
+
+~~Fits your laptop, books, a hoodie and your lunch (that bullies won't want to take from you because you're so stylish)~~
+
+~~Only used a handful of times~~
+
+~~Discontinued style, so you can be sure that you won't see anyone else in the world with this cool backpack, dude!~~
+
+~~https://explore-eu.com/~~
+
+~~Paid €50 but can let it go for €25~~
+
+![Yellow_backpack](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Backpack-1.jpeg?raw=true)
+
+![Yellow_backpack](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Backpack-2.jpeg?raw=true)
+
+![Yellow_backpack](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Backpack-3.jpeg?raw=true)
+
+![Yellow_backpack](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Backpack-4.jpeg?raw=true)
+
+![Yellow_backpack](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Backpack-5.jpeg?raw=true)
 
 
 # IT swag
