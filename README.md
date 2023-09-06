@@ -60,15 +60,13 @@ This bike is incredible. It's a tank. It's basically a two-wheeled version of a 
 
 I bought it used in 2019 from Kauplus Jalgrattas. I paid close to €400, including the bike, the lock, the bell, the headlight and the taillight. I bought the extras that you'll read about below separately.
 
-Since that time, it's been my primary form of transportation in and around Tartu, as well as the vehicle I've used to explore Estonia. I've ridden from Valga to Tartu, Tallinn to Tartu, Koidula to Tartu, Viljandi to Tartu, Tallinn to Narva, Tartu to Valga, a six-day bike trip along the west coast of the country, Tartu to Pärnu, to Saadjärve a million different times, Tartu to Kallaste. I could take it today for a long trip anywhere or a short trip to the grocery store.
+Since that time, it's been my primary form of transportation in and around Tartu, as well as the vehicle I've used to explore Estonia. I've ridden from Valga to Tartu, Tallinn to Tartu, Koidula to Tartu, Viljandi to Tartu, Tallinn to Narva, Tartu to Valga, a six-day bike trip along the west coast of the country, Tartu to Pärnu and back, to Saadjärve a million different times, Tartu to Kallaste, Otepää a bunch of times as well as many more that I've forgotten. I could take it today for a long trip anywhere or a short trip to the grocery store with absolutely no issues.
 
-It's got:
-- front shocks
-- disc brakes
+It's got front shocks, disc brakes and a kickstand.
 
 It's a larger bike, so if you're 150 cm tall, maybe this isn't the bike for you. But if you're a normally-proportioned adult, it'll probably feel great. Come give it a test ride and find out for yourself!
 
-Of course I've had to put more money and do more maintenance into the bike over the last four years:
+Of course I've had to put more money and maintenance into the bike over the last four years:
 - the pedals are new this summer
 - the back tire was replaced this summer
 - the cassette (rear) and chain were replaced in the fall of 2022
@@ -86,12 +84,12 @@ https://www.cykellagret.se/cyklar/crescent/crescent-sport-cyklar/crescent-starre
 
 Here's the official description:
 
-Starren is a good choice no matter if you are thinking of starting exercise or need a reliable commuter bike. You get a fast, functional and safe hybrid bike that will take you where you want, for many years. The bike has 8 gears. This hybrid is equipped with a luggage rack with an AVS quick connector that allows you to attach a bag or basket with a single click. The flexible front fork combined with light, strong aluminum frame geometry and firm tires provide both control and a good feel for the gravel. And if you want to drive fast on asphalt, the fork is easy to lock. The handlebar, guide bracket and seat part are made of light and strong aluminum and are designed to give you a comfortable driving position that can be easily adjusted.
+"Starren is a good choice no matter if you are thinking of starting exercise or need a reliable commuter bike. You get a fast, functional and safe hybrid bike that will take you where you want, for many years. The bike has 8 gears. This hybrid is equipped with a luggage rack with an AVS quick connector that allows you to attach a bag or basket with a single click. The flexible front fork combined with light, strong aluminum frame geometry and firm tires provide both control and a good feel for the gravel. And if you want to drive fast on asphalt, the fork is easy to lock. The handlebar, guide bracket and seat part are made of light and strong aluminum and are designed to give you a comfortable driving position that can be easily adjusted.
 
 Lightweight aluminum frame, elastic fork
 Clever, functional and simple Shimano Acera 8 transmission
 Shimano MT201 hydraulic disc brakes
-Protected tires, luggage rack, parking support
+Protected tires, luggage rack, parking support"
 
 Oh and I forgot to mention that contrary to popular belief, chicks really dig guys who ride bikes. First of all, they're environmentally friendly, and nothing makes a lady moister than protecting Mother Earth. Secondly, the less you spend on gas, the more money you have to wine and dine your special lady.
 
