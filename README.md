@@ -141,6 +141,21 @@ Or I'll throw it in free if you buy an office chair or bike. Woowwwwwwww!
 ![Gold sequin top hat](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Hat-4.jpeg?raw=true)
 
 
+# Super awesome and cool Drying Rack
+
+There's nothing funny about this drying rack. Fact is, it dries your clothes super fast. Probably faster than an electric dryer. It's like you're hanging your clothes out to dry in the Sahara Desert. Best part is, it doesn't cost any money to use.
+
+Pick up in Tartu.
+
+They cost a fortune now at Jysk: https://www.jysk.ee/jolly-kuivatusrest-109134-ee.html. Some go for €20-40
+
+I paid around €10, but it can be yours for the low, low price of €5.
+
+![Drying rack](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Drying-rack-1.jpeg?raw=true)
+
+![Drying rack](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Drying-rack-2.jpeg?raw=true)
+
+
 # Leather jacket 250€
 #### Purchased brand new in New York
 #### Kept in pristine condition
