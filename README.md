@@ -32,6 +32,8 @@ Asking €125 (which is basically 75% off the retail price) or best offer.
 
 ![Steelcase Think office chair](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Chair-1.jpeg?raw=true)
 
+Butt goes here
+
 ![Steelcase Think office chair](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Chair-2.jpeg?raw=true)
 
 ![Steelcase Think office chair](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Chair-3.jpeg?raw=true)
