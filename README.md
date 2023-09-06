@@ -19,8 +19,11 @@ For a sense of how much this chair retails for, check out these links below.
 One additional benefit of this chair compared to those in the links below is that this chair has a head/neck rest, which is incredibly comfortable.
 
 https://store.steelcase.com/seating/office-chairs/think
+
 https://www.amazon.com/Steelcase-Think-Fabric-Chair-Licorice/dp/B006H1QYEW
+
 https://www.crandalloffice.com/shop/chairs/steelcase/465-think/remanufactured-steelcase-465-think-office-chair-mesh-back/
+
 https://seatingmind.com/steelcase-think-chair-black-3d-knit-back-adjustable-arms-adjustable-lumbar-support/
 
 I have no complaints whatsoever about this chair.
