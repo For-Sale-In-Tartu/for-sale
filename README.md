@@ -72,7 +72,7 @@ It's a plug-and-play bike that you can ride around today for a short ride to sch
 
 
 # Jordan Peterson books
-Two books by the legend, Jordan Peterson, 12 Rules for Life & Beyond Order, neither of which I've read ¯\_(ツ)_/¯
+Two books by the legend, Jordan Peterson: **12 Rules for Life** & **Beyond Order**, neither of which I've read ¯\_(ツ)_/¯
 
 €5 each or €8 for both
 
