@@ -4,56 +4,6 @@
 ### Check back often for new items for sale
 
 
-# Steelcase Think office chair in near perfect condition
-
-This chair is super comfortable and ergonomically sound. Fits your body well.
-
-I've been a productive member of society for a long time and got a lot of work done thanks to this chair.
-
-Three recline settings (none, halfway, full), adjustable seat height, adjustable arm rests height. This chair is perfect.
-
-Still in great condition, though it makes the occasional squeak. Nothing is damaged or broken, no scratches or stains. It was brand new as of 2019.
-
-For a sense of how much this chair retails for, check out these links below.
-
-One additional benefit of this chair compared to those in the links below is that this chair has a head/neck rest, which is incredibly comfortable.
-
-https://store.steelcase.com/seating/office-chairs/think
-
-https://www.amazon.com/Steelcase-Think-Fabric-Chair-Licorice/dp/B006H1QYEW
-
-https://www.crandalloffice.com/shop/chairs/steelcase/465-think/remanufactured-steelcase-465-think-office-chair-mesh-back/
-
-https://seatingmind.com/steelcase-think-chair-black-3d-knit-back-adjustable-arms-adjustable-lumbar-support/
-
-I have no complaints whatsoever about this chair.
-
-Asking €125 (which is basically 75% off the retail price) or best offer.
-
-![Steelcase Think office chair](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Chair-1.jpeg?raw=true)
-
-Butt goes here
-
-![Steelcase Think office chair](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Chair-2.jpeg?raw=true)
-
-![Steelcase Think office chair](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Chair-3.jpeg?raw=true)
-
-![Steelcase Think office chair](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Chair-4.jpeg?raw=true)
-
-![Steelcase Think office chair](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Chair-5.jpeg?raw=true)
-
-![Steelcase Think office chair](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Chair-6.jpeg?raw=true)
-
-![Steelcase Think office chair](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Chair-7.jpeg?raw=true)
-
-![Steelcase Think office chair](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Chair-8.jpeg?raw=true)
-
-![Steelcase Think office chair](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Chair-9.jpeg?raw=true)
-
-![Steelcase Think office chair](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Chair-10.jpeg?raw=true)
-
-
-
 # Black Crescent Starren Hybrid Bicycle
 
 This bike is incredible. It's a tank. It's basically a two-wheeled version of a Volvo (pre-Ford and Geely). It's indestructible. I've ridden this bike all over Estonia, literally.
@@ -286,6 +236,56 @@ because buying someone's used mask...that would be gross
 ~~€10 for everything~~
 
 ![IT swag](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/IT-swag.jpeg?raw=true)
+
+
+# Steelcase Think office chair in near perfect condition
+### SOLD!
+
+~~This chair is super comfortable and ergonomically sound. Fits your body well.~~
+
+~~I've been a productive member of society for a long time and got a lot of work done thanks to this chair.~~
+
+~~Three recline settings (none, halfway, full), adjustable seat height, adjustable arm rests height. This chair is perfect.~~
+
+~~Still in great condition, though it makes the occasional squeak. Nothing is damaged or broken, no scratches or stains. It was brand new as of 2019.~~
+
+~~For a sense of how much this chair retails for, check out these links below.~~
+
+~~One additional benefit of this chair compared to those in the links below is that this chair has a head/neck rest, which is incredibly comfortable.~~
+
+~~https://store.steelcase.com/seating/office-chairs/think~~
+
+~~https://www.amazon.com/Steelcase-Think-Fabric-Chair-Licorice/dp/B006H1QYEW~~
+
+~~https://www.crandalloffice.com/shop/chairs/steelcase/465-think/remanufactured-steelcase-465-think-office-chair-mesh-back/~~
+
+~~https://seatingmind.com/steelcase-think-chair-black-3d-knit-back-adjustable-arms-adjustable-lumbar-support/~~
+
+~~I have no complaints whatsoever about this chair.~~
+
+~~Asking €125 (which is basically 75% off the retail price) or best offer.~~
+
+![Steelcase Think office chair](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Chair-1.jpeg?raw=true)
+
+Butt goes here
+
+![Steelcase Think office chair](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Chair-2.jpeg?raw=true)
+
+![Steelcase Think office chair](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Chair-3.jpeg?raw=true)
+
+![Steelcase Think office chair](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Chair-4.jpeg?raw=true)
+
+![Steelcase Think office chair](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Chair-5.jpeg?raw=true)
+
+![Steelcase Think office chair](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Chair-6.jpeg?raw=true)
+
+![Steelcase Think office chair](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Chair-7.jpeg?raw=true)
+
+![Steelcase Think office chair](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Chair-8.jpeg?raw=true)
+
+![Steelcase Think office chair](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Chair-9.jpeg?raw=true)
+
+![Steelcase Think office chair](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Chair-10.jpeg?raw=true)
 
 
 # Nordhale Holm Unisex handbag 15€
