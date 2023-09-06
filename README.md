@@ -114,9 +114,9 @@ Never opened
 
 # Fabulous Gold Sequin Top Hat
 
-Do you want to look fabulous all the g0ddamn time?! Well then do I have the perfect item for you!
+Do you want to look fabulous all the goddamn time?! Well then do I have the perfect item for you!
 
-Look no further for the most bad@ss top hat you've ever seen.
+Look no further for the most badass top hat you've ever seen.
 
 Put this on and you'll appear taller, slimmer, stronger, sexier, more attractive to the opposite (or same, it's 2023 after all) sex, your bank account will be larger, your boss/advisor will like you more, food will taste better, it dispels negative energy. In short, it's the perfect accessory for any outfit.
 
