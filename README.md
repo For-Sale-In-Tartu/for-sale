@@ -112,6 +112,33 @@ Never opened
 ![Logitech mouse](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Mouse-2.jpeg?raw=true)
 
 
+# Fabulous Gold Sequin Top Hat
+
+Do you want to look fabulous all the g0ddamn time?! Well then do I have the perfect item for you!
+
+Look no further for the most bad@ss top hat you've ever seen.
+
+Put this on and you'll appear taller, slimmer, stronger, sexier, more attractive to the opposite (or same, it's 2023 after all) sex, your bank account will be larger, your boss/advisor will like you more, food will taste better, it dispels negative energy. In short, it's the perfect accessory for any outfit.
+
+Also, Halloween is coming up and it's perfect for that sexy outfit you've been planning.
+
+Only worn a couple of times.
+
+Goes for €10-20 on Amazon, but it can be yours for the low, low price of €2.
+
+https://www.amazon.com/gold-sequin-top-hat/s?k=gold+sequin+top+hat
+
+Or I'll throw it in free if you buy an office chair or bike. Woowwwwwwww!
+
+![Gold sequin top hat](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Hat-1.jpeg?raw=true)
+
+![Gold sequin top hat](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Hat-2.jpeg?raw=true)
+
+![Gold sequin top hat](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Hat-3.jpeg?raw=true)
+
+![Gold sequin top hat](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Hat-4.jpeg?raw=true)
+
+
 # Leather jacket 250€
 #### Purchased brand new in New York
 #### Kept in pristine condition
