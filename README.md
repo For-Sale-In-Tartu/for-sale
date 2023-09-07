@@ -16,7 +16,10 @@ Please don't let Zuck cancel me because I'm selling JP books online
 ![Peterson books](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Peterson-books.jpeg?raw=true)
 
 
-# Logitech Marathon M705 Mouse
+# Logitech Marathon M705 Wireless Mouse
+
+Look Mom, no wires!
+
 Great for scrolling through porn or FB Marketplace ads (and gaming too if you have no social life)
 
 Never used
