@@ -7,6 +7,8 @@
 # Jordan Peterson books
 Two books by the legend, Jordan Peterson: **12 Rules for Life** & **Beyond Order**, neither of which I've read ¯\_(ツ)_/¯
 
+They're in excellent condition...almost as if they've never been read!
+
 €5 each or €8 for both
 
 Buying both of these books will help you meet chicks, dudes, get better grades in school and make boatloads of money. Will probably whiten your teeth too.
