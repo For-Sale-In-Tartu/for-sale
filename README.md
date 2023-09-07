@@ -4,73 +4,6 @@
 ### Check back often for new items for sale
 
 
-# Black Crescent Starren Hybrid Bicycle
-
-This bike is incredible. It's a tank. It's basically a two-wheeled version of a Volvo (pre-Ford and Geely). It's indestructible. I've ridden this bike all over Estonia, literally.
-
-I bought it used in 2019 from Kauplus Jalgrattas. I paid close to €400, including the bike, the lock, the bell, the headlight and the taillight. I bought the extras that you'll read about below separately.
-
-Since that time, it's been my primary form of transportation in and around Tartu, as well as the vehicle I've used to explore Estonia. I've ridden from Valga to Tartu, Tallinn to Tartu, Koidula to Tartu, Viljandi to Tartu, Tallinn to Narva, Tartu to Valga, a six-day bike trip along the west coast of the country, Tartu to Pärnu and back, to Saadjärve a million different times, Tartu to Kallaste, Otepää a bunch of times as well as many more that I've forgotten. I could take it today for a long trip anywhere or a short trip to the grocery store with absolutely no issues.
-
-It's got front shocks, disc brakes and a kickstand.
-
-It's a larger bike, so if you're 150 cm tall, maybe this isn't the bike for you. But if you're a normally-proportioned adult, it'll probably feel great. Come give it a test ride and find out for yourself!
-
-Of course I've had to put more money and maintenance into the bike over the last four years:
-- the pedals are new this summer
-- the back tire was replaced this summer
-- the cassette (rear) and chain were replaced in the fall of 2022
-- the rear derailleur (and possibly the rear derailleur hanger, I can't remember anymore) was replaced in 2020
-
-However, the bike isn't perfect. While it can ride without any problems and can ride far, and all components currently work, it could use new handlebar grips; the right (rear) gear shifter could use an adjustment; the left (front) brake needs maintenance; the bell, while loud and functions perfectly, rattles while riding; and the taillight may need maintenance or to be replaced. That's all I can think of at the moment, but come take it for a test ride and see for yourself.
-
-In addition to the lock (whose code can be reset!), the headlight and the taillight, it also comes with a hand bike pump, a tube patch kit, three patched tubes that inflate and currently hold air and chain grease.
-
-It retails for around €1000, not including all the extras I'm throwing in for free:
-
-https://www.bikeplanet.fi/crescent-starren-22
-
-https://www.cykellagret.se/cyklar/crescent/crescent-sport-cyklar/crescent-starren-sport-cyklar
-
-Here's the official description:
-
-"Starren is a good choice no matter if you are thinking of starting exercise or need a reliable commuter bike. You get a fast, functional and safe hybrid bike that will take you where you want, for many years. The bike has 8 gears. This hybrid is equipped with a luggage rack with an AVS quick connector that allows you to attach a bag or basket with a single click. The flexible front fork combined with light, strong aluminum frame geometry and firm tires provide both control and a good feel for the gravel. And if you want to drive fast on asphalt, the fork is easy to lock. The handlebar, guide bracket and seat part are made of light and strong aluminum and are designed to give you a comfortable driving position that can be easily adjusted.
-
-Lightweight aluminum frame, elastic fork
-Clever, functional and simple Shimano Acera 8 transmission
-Shimano MT201 hydraulic disc brakes
-Protected tires, luggage rack, parking support"
-
-Oh and I forgot to mention that contrary to popular belief, chicks really dig guys who ride bikes. First of all, they're environmentally friendly, and nothing makes a lady moister than protecting Mother Earth. Secondly, the less you spend on gas, the more money you have to wine and dine your special lady.
-
-And ladies, we all know how much guys (and girls) dig a cutie riding around on a bike with her wind flowing in the air.
-
-Asking €225 or best offer. It's an amazing value and a steal at that price.
-
-It's a plug-and-play bike that you can ride around today for a short ride to school/work or a long-distance ride to the other side of the country.
-
-![Bike](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Bike-1.jpeg?raw=true)
-
-![Bike](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Bike-2.jpeg?raw=true)
-
-![Bike](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Bike-3.jpeg?raw=true)
-
-![Bike](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Bike-4.jpeg?raw=true)
-
-![Bike](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Bike-5.jpeg?raw=true)
-
-![Bike](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Bike-6.jpeg?raw=true)
-
-![Bike](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Bike-7.jpeg?raw=true)
-
-![Bike](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Bike-8.jpeg?raw=true)
-
-![Bike](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Bike-9.jpeg?raw=true)
-
-![Bike](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Bike-10.jpeg?raw=true)
-
-
-
 # Jordan Peterson books
 Two books by the legend, Jordan Peterson: **12 Rules for Life** & **Beyond Order**, neither of which I've read ¯\_(ツ)_/¯
 
@@ -124,6 +57,74 @@ Or I'll throw it in free if you buy an office chair or bike. Woowwwwwwww!
 ![Gold sequin top hat](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Hat-3.jpeg?raw=true)
 
 ![Gold sequin top hat](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Hat-4.jpeg?raw=true)
+
+
+# Black Crescent Starren Hybrid Bicycle
+
+### SOLD!
+
+~~This bike is incredible. It's a tank. It's basically a two-wheeled version of a Volvo (pre-Ford and Geely). It's indestructible. I've ridden this bike all over Estonia, literally.~~
+
+~~I bought it used in 2019 from Kauplus Jalgrattas. I paid close to €400, including the bike, the lock, the bell, the headlight and the taillight. I bought the extras that you'll read about below separately.~~
+
+~~Since that time, it's been my primary form of transportation in and around Tartu, as well as the vehicle I've used to explore Estonia. I've ridden from Valga to Tartu, Tallinn to Tartu, Koidula to Tartu, Viljandi to Tartu, Tallinn to Narva, Tartu to Valga, a six-day bike trip along the west coast of the country, Tartu to Pärnu and back, to Saadjärve a million different times, Tartu to Kallaste, Otepää a bunch of times as well as many more that I've forgotten. I could take it today for a long trip anywhere or a short trip to the grocery store with absolutely no issues.~~
+
+~~It's got front shocks, disc brakes and a kickstand.~~
+
+~~It's a larger bike, so if you're 150 cm tall, maybe this isn't the bike for you. But if you're a normally-proportioned adult, it'll probably feel great. Come give it a test ride and find out for yourself!~~
+
+~~Of course I've had to put more money and maintenance into the bike over the last four years:~~
+~~- the pedals are new this summer~~
+~~- the back tire was replaced this summer~~
+~~- the cassette (rear) and chain were replaced in the fall of 2022~~
+~~- the rear derailleur (and possibly the rear derailleur hanger, I can't remember anymore) was replaced in 2020~~
+
+~~However, the bike isn't perfect. While it can ride without any problems and can ride far, and all components currently work, it could use new handlebar grips; the right (rear) gear shifter could use an adjustment; the left (front) brake needs maintenance; the bell, while loud and functions perfectly, rattles while riding; and the taillight may need maintenance or to be replaced. That's all I can think of at the moment, but come take it for a test ride and see for yourself.~~
+
+~~In addition to the lock (whose code can be reset!), the headlight and the taillight, it also comes with a hand bike pump, a tube patch kit, three patched tubes that inflate and currently hold air and chain grease.~~
+
+~~It retails for around €1000, not including all the extras I'm throwing in for free:~~
+
+~~https://www.bikeplanet.fi/crescent-starren-22~~
+
+~~https://www.cykellagret.se/cyklar/crescent/crescent-sport-cyklar/crescent-starren-sport-cyklar~~
+
+~~Here's the official description:~~
+
+~~"Starren is a good choice no matter if you are thinking of starting exercise or need a reliable commuter bike. You get a fast, functional and safe hybrid bike that will take you where you want, for many years. The bike has 8 gears. This hybrid is equipped with a luggage rack with an AVS quick connector that allows you to attach a bag or basket with a single click. The flexible front fork combined with light, strong aluminum frame geometry and firm tires provide both control and a good feel for the gravel. And if you want to drive fast on asphalt, the fork is easy to lock. The handlebar, guide bracket and seat part are made of light and strong aluminum and are designed to give you a comfortable driving position that can be easily adjusted.~~
+
+~~Lightweight aluminum frame, elastic fork~~
+~~Clever, functional and simple Shimano Acera 8 transmission~~
+~~Shimano MT201 hydraulic disc brakes~~
+~~Protected tires, luggage rack, parking support"~~
+
+~~Oh and I forgot to mention that contrary to popular belief, chicks really dig guys who ride bikes. First of all, they're environmentally friendly, and nothing makes a lady moister than protecting Mother Earth. Secondly, the less you spend on gas, the more money you have to wine and dine your special lady.~~
+
+~~And ladies, we all know how much guys (and girls) dig a cutie riding around on a bike with her hair flowing in the wind.~~
+
+~~Asking €225 or best offer. It's an amazing value and a steal at that price.~~
+
+~~It's a plug-and-play bike that you can ride around today for a short ride to school/work or a long-distance ride to the other side of the country.~~
+
+![Bike](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Bike-1.jpeg?raw=true)
+
+![Bike](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Bike-2.jpeg?raw=true)
+
+![Bike](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Bike-3.jpeg?raw=true)
+
+![Bike](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Bike-4.jpeg?raw=true)
+
+![Bike](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Bike-5.jpeg?raw=true)
+
+![Bike](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Bike-6.jpeg?raw=true)
+
+![Bike](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Bike-7.jpeg?raw=true)
+
+![Bike](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Bike-8.jpeg?raw=true)
+
+![Bike](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Bike-9.jpeg?raw=true)
+
+![Bike](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Bike-10.jpeg?raw=true)
 
 
 # Super awesome and cool Drying Rack
