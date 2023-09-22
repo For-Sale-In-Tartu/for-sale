@@ -25,6 +25,7 @@ Contains:
 - 1 small plastic container with green lid
 - 1 square glass bowl with clear plastic lid
 - 1 nearly brand new Ecopan skillet
+  - https://ecopan-cookware.com/shop/fusion/24-cm-frypan-2/
 - 1 used Delimano skillet with clear glass lid (has some scratching on nonstick surface but still very good for cooking meat and soups)
 - 1 large Scarlett pot with clear glass lid in excellent condition
 - 1 white plastic cup
@@ -65,6 +66,18 @@ Contains:
 
 ![Kitchen set](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Kitchen-set-15.jpeg?raw=true)
 
+#### The Ecopan Fusion information (probably still under warranty):
+
+https://ecopan-cookware.com/shop/fusion/24-cm-frypan-2/
+
+This pan retails for around €38 on its own, and is still in immaculate condition
+
+![Ecopan](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Ecopan-1.jpeg?raw=true)
+
+![Ecopan](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Ecopan-2.jpeg?raw=true)
+
+![Ecopan](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Ecopan-3.jpeg?raw=true)
+
 
 # MacBook Pro Charger
 
@@ -86,6 +99,14 @@ https://www.apple.com/shop/product/MC556LL/B/apple-85w-magsafe-power-adapter-for
 ![MacBook charger](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/MacBook-Pro-charger-1.jpeg?raw=true)
 
 ![MacBook charger](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/MacBook-Pro-charger-2.jpeg?raw=true)
+
+![MacBook charger](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/MacBook-Pro-charger-3.jpeg?raw=true)
+
+![MacBook charger](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/MacBook-Pro-charger-4.jpeg?raw=true)
+
+![MacBook charger](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/MacBook-Pro-charger-5.jpeg?raw=true)
+
+![MacBook charger](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/MacBook-Pro-charger-6.jpeg?raw=true)
 
 
 
