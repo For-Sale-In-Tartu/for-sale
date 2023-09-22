@@ -19,20 +19,21 @@ Contains:
 - 8 coffee cups
 - 3 large plates
 - 2 small plates
-- 2 large serving bowls
+- 2 large serving bowls (green and beige)
 - 2 black and white bowls
-- 1 large plastic Tupperware
-- 1 small plastic Tupperware
-- 1 square glass bowl with plastic lid
-- 1 brand new Ecopan skillet
-- 1 used Delimano skillet with clear glass lid
-- 1 large Scarlett pot with clear glass lid
+- 1 large plastic container with yellow lid
+- 1 small plastic container with green lid
+- 1 square glass bowl with clear plastic lid
+- 1 nearly brand new Ecopan skillet
+- 1 used Delimano skillet with clear glass lid (has some scratching on nonstick surface but still very good for cooking meat and soups)
+- 1 large Scarlett pot with clear glass lid in excellent condition
 - 1 white plastic cup
 - 1 black spatula
 - 1 red spatula with wooden handle
 - 1 plastic ladle 
-- 4 sharp kitchen knives 
+- 4 sharp kitchen knives all in excellent condition (the one with the white handle is a little blunt doesn't stay sharp as long as the others, but the others are quite sharp)
 - 1 blue glass Pyrex pan
+- 3 glass cleaners/scrub brushes
 
 ![Kitchen set](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Kitchen-set-1.jpeg?raw=true)
 
@@ -63,6 +64,29 @@ Contains:
 ![Kitchen set](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Kitchen-set-14.jpeg?raw=true)
 
 ![Kitchen set](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Kitchen-set-15.jpeg?raw=true)
+
+
+# MacBook Pro Charger
+
+This charger is gently used. It says it's a 60-watt MagSafe power adapter. I used it with my 13" MBP but I'm sure it can be used with any MacBook that connects to a magnetic DC connector. 
+
+Excellent condition
+
+€20
+
+Note: it has a US power adapter, which means you have three options: 
+1. Swap out the US power adapter for an EU version
+2. Use a US-to-EU adapter
+3. Don't buy it at all ¯\_(ツ)_/¯
+
+https://www.apple.com/shop/product/MD565LL/A/apple-60w-magsafe-2-power-adaptermacbook-pro-with-13-inch-retina-display
+
+https://www.apple.com/shop/product/MC556LL/B/apple-85w-magsafe-power-adapter-for-15-and-17-inch-macbook-pro
+
+![MacBook charger](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/MacBook-Pro-charger-1.jpeg?raw=true)
+
+![MacBook charger](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/MacBook-Pro-charger-2.jpeg?raw=true)
+
 
 
 # Logitech Marathon M705 Wireless Mouse
