@@ -10,14 +10,20 @@
 
 Pick up in Emajõe, Tartu.
 
-Perfect for lazy bachelors/bachelorettes or the super experienced in the kitchen...you know, your Guy Fiery types.
-
 Everything you need to not starve today. Hell, you can even become quite fat and happy with all these useful utensils.
+
+Perfect for lazy bachelors/bachelorettes or the super experienced in the kitchen...you know, your Guy Fiery culinary genius types who like to show off in the kitchen.
 
 Whip up something quick, or create a savory, mouthwatering seven-course meal and wow the panties off your girlfriend (or boyfriend, if he wears panties).
 
 Contains:
 
+- 1 nearly brand new Ecopan skillet
+  - https://ecopan-cookware.com/shop/fusion/24-cm-frypan-2/
+  - https://ecopan-cookware.com/product-category/fusion/
+  - https://ecopan-cookware.com/home-2-4/
+- 1 used Delimano skillet with clear glass lid (has some scratching on nonstick surface but still very good for cooking meat and soups...I just wouldn't use it for eggs unless you like your eggs scrambled)
+- 1 large Scarlett pot with clear glass lid in excellent condition
 - 5 forks
 - 5 butter knives
 - 8 spoons
@@ -32,12 +38,6 @@ Contains:
 - 1 large plastic container with yellow lid
 - 1 small plastic container with green lid
 - 1 square glass bowl with clear plastic lid
-- 1 nearly brand new Ecopan skillet
-  - https://ecopan-cookware.com/shop/fusion/24-cm-frypan-2/
-  - https://ecopan-cookware.com/product-category/fusion/
-  - https://ecopan-cookware.com/home-2-4/
-- 1 used Delimano skillet with clear glass lid (has some scratching on nonstick surface but still very good for cooking meat and soups...I just wouldn't use it for eggs unless you like your eggs scrambled)
-- 1 large Scarlett pot with clear glass lid in excellent condition
 - 1 white plastic cup
 - 1 black spatula
 - 1 red spatula with wooden handle
