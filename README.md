@@ -8,6 +8,14 @@
 
 €60 for everything
 
+Pick up in Emajõe, Tartu.
+
+Perfect for lazy bachelors/bachelorettes or the super experienced in the kitchen...you know, your Guy Fiery types.
+
+Everything you need to not starve today. Hell, you can even become quite fat and happy with all these useful utensils.
+
+Whip up something quick, or create a savory, mouthwatering seven-course meal and wow the panties off your girlfriend (or boyfriend, if he wears panties).
+
 Contains:
 
 - 5 forks
