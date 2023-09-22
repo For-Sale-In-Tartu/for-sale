@@ -106,6 +106,8 @@ https://www.apple.com/shop/product/MC556LL/B/apple-85w-magsafe-power-adapter-for
 
 ![MacBook charger](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/MacBook-Pro-charger-4.jpeg?raw=true)
 
+### Not the easiest to see in the lighting in the photo, but the charging indicator light is on and my MBP is charging
+
 ![MacBook charger](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/MacBook-Pro-charger-5.jpeg?raw=true)
 
 ![MacBook charger](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/MacBook-Pro-charger-6.jpeg?raw=true)
