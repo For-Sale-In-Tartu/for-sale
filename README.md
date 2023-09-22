@@ -41,8 +41,8 @@ Contains:
 - 1 white plastic cup
 - 1 black spatula
 - 1 red spatula with wooden handle
-- 1 plastic ladle 
-- 4 sharp kitchen knives all in excellent condition (the one with the white handle is a little blunt doesn't stay sharp as long as the others, but the others are quite sharp)
+- 1 black plastic ladle 
+- 4 sharp kitchen knives all in excellent condition (the one with the white handle is a little blunt and doesn't stay sharp as long as the others, but the others are quite sharp; I use the white handled knife most frequently unless I need to cut something that requires a really sharp knife, then I use any of the other three)
 - 1 blue glass Pyrex pan
 - 3 glass cleaners/scrub brushes
 
