@@ -4,18 +4,35 @@
 ### Check back often for new items for sale
 
 
-# Jordan Peterson books
-Two books by the legend, Jordan Peterson: **12 Rules for Life** & **Beyond Order**, neither of which I've read ¯\_(ツ)_/¯
+# Amazing Kitchen Starter Kit
 
-They're in excellent condition...almost as if they've never been read!
+€60 for everything
 
-€5 each or €8 for both
+Contains:
 
-Buying both of these books will help you meet chicks, dudes, get better grades in school and make boatloads of money. Will probably whiten your teeth too.
-
-Please don't let Zuck cancel me because I'm selling JP books online
-
-![Peterson books](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Peterson-books.jpeg?raw=true)
+- 5 forks
+- 5 butter knives
+- 8 spoons
+- 2 clear pint glasses
+- 2 tall Saku beer glasses
+- 1 insulated LifeStraw water bottle/thermos
+- 8 coffee cups
+- 3 large plates
+- 2 small plates
+- 2 large serving bowls
+- 2 black and white bowls
+- 1 large plastic Tupperware
+- 1 small plastic Tupperware
+- 1 square glass bowl with plastic lid
+- 1 brand new Ecopan skillet
+- 1 used Delimano skillet with clear glass lid
+- 1 large Scarlett pot with clear glass lid
+- 1 white plastic cup
+- 1 black spatula
+- 1 red spatula with wooden handle
+- 1 plastic ladle 
+- 4 sharp kitchen knives 
+- 1 blue glass Pyrex pan
 
 
 # Logitech Marathon M705 Wireless Mouse
@@ -53,7 +70,7 @@ Goes for €10-20 on Amazon, but it can be yours for the low, low price of €2.
 
 https://www.amazon.com/gold-sequin-top-hat/s?k=gold+sequin+top+hat
 
-Or I'll throw it in free if you buy an office chair or bike. Woowwwwwwww!
+Or I'll throw it in free if you buy kitchen stuff or a mouse ~~an office chair or bike~~. Woowwwwwwww!
 
 ![Gold sequin top hat](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Hat-1.jpeg?raw=true)
 
@@ -62,6 +79,23 @@ Or I'll throw it in free if you buy an office chair or bike. Woowwwwwwww!
 ![Gold sequin top hat](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Hat-3.jpeg?raw=true)
 
 ![Gold sequin top hat](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Hat-4.jpeg?raw=true)
+
+# Jordan Peterson books
+
+### SOLD!
+
+~~Two books by the legend, Jordan Peterson: **12 Rules for Life** & **Beyond Order**, neither of which I've read ¯\_(ツ)_/¯~~
+
+~~They're in excellent condition...almost as if they've never been read!~~
+
+~~€5 each or €8 for both~~
+
+~~Buying both of these books will help you meet chicks, dudes, get better grades in school and make boatloads of money. Will probably whiten your teeth too.~~
+
+~~Please don't let Zuck cancel me because I'm selling JP books online~~
+
+![Peterson books](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Peterson-books.jpeg?raw=true)
+
 
 
 # Black Crescent Starren Hybrid Bicycle
