@@ -26,6 +26,8 @@ Contains:
 - 1 square glass bowl with clear plastic lid
 - 1 nearly brand new Ecopan skillet
   - https://ecopan-cookware.com/shop/fusion/24-cm-frypan-2/
+  - https://ecopan-cookware.com/product-category/fusion/
+  - https://ecopan-cookware.com/home-2-4/
 - 1 used Delimano skillet with clear glass lid (has some scratching on nonstick surface but still very good for cooking meat and soups)
 - 1 large Scarlett pot with clear glass lid in excellent condition
 - 1 white plastic cup
