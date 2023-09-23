@@ -74,7 +74,7 @@ Contains:
 
 ![Kitchen set](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Kitchen-set-14.jpeg?raw=true)
 
-#### If you're not already convinced that this is the best deal on FB Marketplace, I'll even throw in some basic spices and whatnot for free. Just ask if you want these thrown in!
+#### If you're not already convinced that this is the best deal on FB Marketplace, I'll even throw in some basic spices, cooking oils and whatnot for free. Just ask if you want these thrown in!
 
 ![Kitchen set](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Kitchen-set-15.jpeg?raw=true)
 
