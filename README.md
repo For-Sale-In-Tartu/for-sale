@@ -6,6 +6,8 @@
 
 # Amazing Kitchen Starter Kit
 
+Amazing Kitchen Starter Kit with just about anything you could need.
+
 €60 for everything
 
 Pick up in Emajõe, Tartu.
