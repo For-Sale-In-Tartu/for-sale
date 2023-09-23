@@ -92,7 +92,7 @@ This pan retails for around €38 on its own, and is still in immaculate conditi
 
 ![Ecopan](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Ecopan-3.jpeg?raw=true)
 
-#### Everything is in excellent condition unless mentioned. Not greasy, dirty, chipped, scratched or stained. These 58 total items (if I can count correctly) were taken good care of and are ready to be added to your kitchen collection today! Only about €1 per item....woowwwwwww!!!!
+#### Everything is in excellent condition unless otherwise mentioned. Not greasy, dirty, chipped, scratched or stained. These 58 total items (if I can count correctly) were taken good care of and are ready to be added to your kitchen collection today! Only about €1 per item....woowwwwwww!!!!
 
 Click below for additional photos and to see other totally awesome and cool items for sale cheap!
 https://github.com/For-Sale-In-Tartu/for-sale/
