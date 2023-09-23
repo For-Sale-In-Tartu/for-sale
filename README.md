@@ -39,7 +39,7 @@ Contains:
 - 1 small plastic container with green lid
 - 1 square glass bowl with clear plastic lid
 - 1 white plastic cup
-- 1 black plastic/silicone spatula (does show some wear and tear, but a ton of use left in it)
+- 1 black plastic/silicone spatula (does show some wear and tear, but still has a ton of use left in it)
 - 1 red silicone spatula with wooden handle
 - 1 black plastic ladle 
 - 4 sharp stainless steel kitchen knives all in excellent condition (the one with the white handle is a little blunt and doesn't stay sharp as long as the others, but the others are quite sharp; I use the white handled knife most frequently unless I need to cut something that requires a really sharp knife, then I use any of the other three)
@@ -90,7 +90,7 @@ This pan retails for around €38 on its own, and is still in immaculate conditi
 
 ![Ecopan](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Ecopan-3.jpeg?raw=true)
 
-#### Everything is in excellent condition unless mentioned. Not greasy, dirty, chipped, scratched or stained. Ready to be added to your kitchen collection today!
+#### Everything is in excellent condition unless mentioned. Not greasy, dirty, chipped, scratched or stained. These items were taken good care of and are ready to be added to your kitchen collection today!
 
 Click below for additional photos and to see other totally awesome and cool items for sale cheap!
 https://github.com/For-Sale-In-Tartu/for-sale/
