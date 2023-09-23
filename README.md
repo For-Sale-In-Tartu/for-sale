@@ -22,7 +22,7 @@ Contains:
   - https://ecopan-cookware.com/shop/fusion/24-cm-frypan-2/
   - https://ecopan-cookware.com/product-category/fusion/
   - https://ecopan-cookware.com/home-2-4/
-- 1 used Delimano skillet with clear glass lid (has some scratching on nonstick surface but still very good for cooking meat and soups...I just wouldn't use it for eggs unless you like your eggs scrambled)
+- 1 used Delimano skillet with clear glass lid (has some scratching on its nonstick surface but still very good for cooking meat and soups...I just wouldn't use it for eggs unless you like your eggs scrambled)
 - 1 large Scarlett stainless steel pot with clear glass lid in excellent condition
 - 5 stainless steel forks
 - 5 stainless steel butter knives
