@@ -6,7 +6,7 @@
 
 # Amazing Kitchen Starter Kit
 
-Amazing Kitchen Starter Kit with just about anything you could need.
+Amazing Kitchen Starter Kit with just about anything you could ever want or need.
 
 €60 for everything
 
@@ -18,7 +18,7 @@ Perfect for lazy bachelors/bachelorettes or the super experienced in the kitchen
 
 Whip up something quick, or create a savory, mouthwatering seven-course meal and wow the panties off your girlfriend (or boyfriend, if he wears panties).
 
-Contains:
+Includes:
 
 - 1 nearly brand new Ecopan skillet in immaculate condition
   - https://ecopan-cookware.com/shop/fusion/24-cm-frypan-2/
@@ -92,7 +92,7 @@ This pan retails for around €38 on its own, and is still in immaculate conditi
 
 ![Ecopan](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Ecopan-3.jpeg?raw=true)
 
-#### Everything is in excellent condition unless mentioned. Not greasy, dirty, chipped, scratched or stained. These items were taken good care of and are ready to be added to your kitchen collection today!
+#### Everything is in excellent condition unless mentioned. Not greasy, dirty, chipped, scratched or stained. These 58 total items (if I can count correctly) were taken good care of and are ready to be added to your kitchen collection today! Only about €1 per item....woowwwwwww!!!!
 
 Click below for additional photos and to see other totally awesome and cool items for sale cheap!
 https://github.com/For-Sale-In-Tartu/for-sale/
