@@ -106,6 +106,8 @@ It's a three-season sleeping bag, so obviously it isn't warm enough to sleep out
 
 Bottom zips open so you can let your smelly feet air out while keeping the rest of your body warm.
 
+Also comes with a stuff sack as shown in the photos.
+
 Purchased for around €20-25 including shipping, but can be yours for the low, low price of €10. That's over a 50% discount, you cheap b@stards.
 
 Sex never took place in this sleeping bag (I'm saving myself for marriage if you must know).
