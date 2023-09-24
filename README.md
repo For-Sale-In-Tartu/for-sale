@@ -104,6 +104,8 @@ Purchased in June 2023 from osta.ee. Only used a handful of times and not dirty 
 
 It's a three-season sleeping bag, so obviously it isn't warm enough to sleep outside in when it's -20°. But if that's your thing, maybe you should seek psychological help.
 
+Bottom zips open so you can let your smelly feet air out while keeping the rest of your body warm.
+
 Purchased for around €20-25 including shipping, but can be yours for the low, low price of €10. That's over a 50% discount, you cheap b@stards.
 
 Sex never took place in this sleeping bag (I'm saving myself for marriage if you must know).
