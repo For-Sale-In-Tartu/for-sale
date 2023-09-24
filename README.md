@@ -193,7 +193,7 @@ White #1:
 - Approximately 1.8 m long
 - 6 outlets
 - Power switch
-- €5
+- €6
 
 ![Surge protector power strip](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Surge-protector-power-strip-3.jpeg?raw=true)
 
