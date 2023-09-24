@@ -210,7 +210,7 @@ White #2:
 ![Surge protector power strip](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Surge-protector-power-strip-6.jpeg?raw=true)
 
 
-# Ice trays
+# The coolest ice trays in the world
 
 If you buy these ice trays, women (or men) will love you. They'll always show up to your parties. And your BMI will be lower. True story.
 
