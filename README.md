@@ -176,8 +176,6 @@ P0rn was never browsed using this keyboard. But nobody's judging if you decide t
 
 ![Kinesis Freestyle 2 US keyboard](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/US-keyboard-6.jpeg?raw=true)
 
-![Kinesis Freestyle 2 US keyboard](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/US-keyboard-7.jpeg?raw=true)
-
 
 # MacBook Pro Charger
 
