@@ -133,7 +133,7 @@ https://www.kingcampoutdoors.com/collections/sleeping-bags/products/joinable-3-s
 ![Kingcamp sleeping bag](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Sleeping-bag-7.jpeg?raw=true)
 
 
-# HP Keyboard, Nordic layout
+# HP USB Business Slim Smartcard Keyboard, Nordic layout
 
 Very clean and in excellent condition, every key is perfect. Will help you type faster, become more attractive to the opposite (or same) sex and just be a better human being overall.
 
