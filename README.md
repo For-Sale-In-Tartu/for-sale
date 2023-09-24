@@ -212,6 +212,8 @@ White #2:
 
 # Ice trays
 
+If you buy these ice trays, women (or men) will love you. They'll always show up to your parties. And your BMI will be lower. True story.
+
 Ice not included. Make your own damn ice.
 
 €1
