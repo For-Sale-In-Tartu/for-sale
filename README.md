@@ -98,6 +98,83 @@ Click below for additional photos and to see other totally awesome and cool item
 https://github.com/For-Sale-In-Tartu/for-sale/
 
 
+# Kingcamp sleeping bag
+
+Purchased in June, 2023 from osta.ee. Only used a handful of times and not dirty at all. And I'm a clean person! I swear.
+
+It's a three-season sleeping bag, so obviously it isn't warm enough to sleep outside in when it's -20°. But if that's your thing, maybe you should seek psychological help.
+
+Purchased for around €20-25 including shipping, but can be yours for the low, low price of €10. That's over a 50% discount, you cheap b@stards.
+
+Sex never took place in this sleeping bag (I'm saving myself for marriage if you must know).
+
+Retail price is in the €35 range.
+
+https://www.amazon.co.uk/KingCamp-Sleeping-Compression-Colours-sleep-bags/dp/B01EFTA3E4
+
+https://www.kingcampoutdoors.com/collections/sleeping-bags/products/joinable-3-season-envelope-sleeping-bag-1?variant=42287289204973
+
+![Kingcamp sleeping bag](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Sleeping-bag-1.jpeg?raw=true)
+
+![Kingcamp sleeping bag](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Sleeping-bag-2.jpeg?raw=true)
+
+![Kingcamp sleeping bag](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Sleeping-bag-3.jpeg?raw=true)
+
+![Kingcamp sleeping bag](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Sleeping-bag-4.jpeg?raw=true)
+
+![Kingcamp sleeping bag](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Sleeping-bag-5.jpeg?raw=true)
+
+![Kingcamp sleeping bag](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Sleeping-bag-6.jpeg?raw=true)
+
+![Kingcamp sleeping bag](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Sleeping-bag-7.jpeg?raw=true)
+
+
+# HP Keyboard, Nordic layout
+
+Very clean and in excellent condition, every key is perfect. Will help you type faster, become more attractive to the opposite (or same) sex and just be a better human being overall.
+
+Retails for about $45, but can be yours for the low, low price of €10.
+
+https://www.amazon.com/USB-Slim-Ccid-Smartcard-Kyd/dp/B06WRN6RTM
+
+P0rn was never browsed using this keyboard. But nobody's judging if you decide to (just know that God is watching...you sicko)
+
+![HP Nordic keyboard](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Nordic-keyboard-1.jpeg?raw=true)
+
+![HP Nordic keyboard](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Nordic-keyboard-2.jpeg?raw=true)
+
+
+# Kinesis Freestyle 2 Keyboard, US layout
+
+Are you sick and tired of the weirdly shaped Enter key on Nordic keyboards? Is the tiny left shift key chapping your caboose?
+
+Well then do I have the solution for you!
+
+Presenting the coolest, most ergonomical keyboard you'll ever have typed an email or harassed people on Reddit with. Typing with your arms shoulder width apart rather than cramped together like "normal" keyboards is much more ergonimical, attractive and good for your self-esteem.
+
+Retails for about $89, but can be yours for the low, low price of €10.
+
+https://www.amazon.com/Freestyle2-Ergonomic-Keyboard-Standard-Separation/dp/B00CMALD3E
+
+Obviously this keyboard is a bit dinged up and missing a couple of useless keys, but it still types amazingly. And it'll help you type faster, get better grades in school, earn more money and overall become a better person.
+
+P0rn was never browsed using this keyboard. But nobody's judging if you decide to (just know that God is watching, you sicko...)
+
+![Kinesis Freestyle 2 US keyboard](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/US-keyboard-1.jpeg?raw=true)
+
+![Kinesis Freestyle 2 US keyboard](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/US-keyboard-2.jpeg?raw=true)
+
+![Kinesis Freestyle 2 US keyboard](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/US-keyboard-3.jpeg?raw=true)
+
+![Kinesis Freestyle 2 US keyboard](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/US-keyboard-4.jpeg?raw=true)
+
+![Kinesis Freestyle 2 US keyboard](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/US-keyboard-5.jpeg?raw=true)
+
+![Kinesis Freestyle 2 US keyboard](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/US-keyboard-6.jpeg?raw=true)
+
+![Kinesis Freestyle 2 US keyboard](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/US-keyboard-7.jpeg?raw=true)
+
+
 # MacBook Pro Charger
 
 This charger is gently used. It says it's a 60-watt MagSafe power adapter. I used it with my 13" MBP but I'm sure it can be used with any MacBook that connects to a magnetic DC connector. 
