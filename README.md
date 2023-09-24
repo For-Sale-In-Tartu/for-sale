@@ -100,7 +100,7 @@ https://github.com/For-Sale-In-Tartu/for-sale/
 
 # Kingcamp sleeping bag
 
-Purchased in June, 2023 from osta.ee. Only used a handful of times and not dirty at all. And I'm a clean person! I swear.
+Purchased in June 2023 from osta.ee. Only used a handful of times and not dirty at all. And I'm a clean person! I swear.
 
 It's a three-season sleeping bag, so obviously it isn't warm enough to sleep outside in when it's -20°. But if that's your thing, maybe you should seek psychological help.
 
