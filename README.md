@@ -176,6 +176,41 @@ Or I'll throw it in free if you buy kitchen stuff or a mouse ~~an office chair o
 
 ![Gold sequin top hat](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Hat-4.jpeg?raw=true)
 
+
+# Power strip (surge protector)
+
+Black:
+1.8 m long
+4 outlets
+Power switch
+€5
+
+![Surge protector power strip](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Surge-protector-power-strip-1.jpeg?raw=true)
+
+![Surge protector power strip](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Surge-protector-power-strip-2.jpeg?raw=true)
+
+White #1:
+approximately 1.8 m long
+6 outlets
+Power switch
+€5
+
+![Surge protector power strip](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Surge-protector-power-strip-3.jpeg?raw=true)
+
+![Surge protector power strip](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Surge-protector-power-strip-4.jpeg?raw=true)
+
+White #2:
+Really long power cord, possibly 10 m long (don't know exactly, but it's really long)
+5 outlets
+No power switch
+€5
+
+![Surge protector power strip](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Surge-protector-power-strip-5.jpeg?raw=true)
+
+![Surge protector power strip](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Surge-protector-power-strip-6.jpeg?raw=true)
+
+
+
 # Jordan Peterson books
 
 ### SOLD!
