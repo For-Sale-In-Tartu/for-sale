@@ -210,6 +210,18 @@ White #2:
 ![Surge protector power strip](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Surge-protector-power-strip-6.jpeg?raw=true)
 
 
+# Ice trays
+
+Ice not included. Make your own damn ice.
+
+€1
+
+Free if you buy the kitchen set https://www.facebook.com/marketplace/item/1543035263105500/ or https://github.com/For-Sale-In-Tartu/for-sale/tree/main#amazing-kitchen-starter-kit
+
+![Ice trays](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Ice-trays.jpeg?raw=true)
+
+
+
 
 # Jordan Peterson books
 
