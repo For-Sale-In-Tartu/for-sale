@@ -262,7 +262,7 @@ Black:
 - 1.8 m long
 - 4 outlets
 - Power switch
-- €5
+- €3
 
 ![Surge protector power strip](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Surge-protector-power-strip-1.jpeg?raw=true)
 
@@ -272,7 +272,7 @@ White #1:
 - Approximately 1.8 m long
 - 6 outlets
 - Power switch
-- €6
+- €4
 
 ![Surge protector power strip](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Surge-protector-power-strip-3.jpeg?raw=true)
 
@@ -282,7 +282,7 @@ White #2:
 - Really long power cord, possibly 10 m long (don't know exactly, but it's really long)
 - 5 outlets
 - No power switch
-- €5
+- €3
 
 ![Surge protector power strip](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Surge-protector-power-strip-5.jpeg?raw=true)
 
