@@ -128,7 +128,7 @@ In original packaging
 
 Never opened
 
-€25
+€20
 
 ![Logitech mouse](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Mouse-1.jpeg?raw=true)
 
