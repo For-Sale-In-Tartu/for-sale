@@ -116,25 +116,6 @@ https://www.apple.com/shop/product/MC556LL/B/apple-85w-magsafe-power-adapter-for
 
 
 
-# Logitech Marathon M705 Wireless Mouse
-
-Look Mom, no wires!
-
-Great for scrolling through porn or FB Marketplace ads (and gaming too if you have no social life)
-
-Never used
-
-In original packaging
-
-Never opened
-
-€20
-
-![Logitech mouse](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Mouse-1.jpeg?raw=true)
-
-![Logitech mouse](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Mouse-2.jpeg?raw=true)
-
-
 # Fabulous Gold Sequin Top Hat
 
 Do you want to look fabulous all the goddamn time?! Well then do I have the perfect item for you!
@@ -206,6 +187,27 @@ Ice not included. Make your own damn ice.
 Free if you buy the kitchen set https://www.facebook.com/marketplace/item/1543035263105500/ or https://github.com/For-Sale-In-Tartu/for-sale/tree/main#amazing-kitchen-starter-kit
 
 ![Ice trays](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Ice-trays.jpeg?raw=true)
+
+
+# Logitech Marathon M705 Wireless Mouse
+
+### SOLD!
+
+~~Look Mom, no wires!~~
+
+~~Great for scrolling through porn or FB Marketplace ads (and gaming too if you have no social life)~~
+
+~~Never used~~
+
+~~In original packaging~~
+
+~~Never opened~~
+
+~~€20~~
+
+![Logitech mouse](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Mouse-1.jpeg?raw=true)
+
+![Logitech mouse](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Mouse-2.jpeg?raw=true)
 
 
 # Amazing Kitchen Starter Kit
