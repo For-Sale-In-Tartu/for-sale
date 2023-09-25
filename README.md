@@ -4,100 +4,6 @@
 ### Check back often for new items for sale
 
 
-# Amazing Kitchen Starter Kit
-
-Amazing Kitchen Starter Kit with just about anything you could ever want or need.
-
-€50 for everything
-
-Pick up in Emajõe, Tartu.
-
-Everything you need to not starve today. Hell, you can even become quite fat and happy with all these useful utensils.
-
-Perfect for lazy bachelors/bachelorettes or the super experienced in the kitchen...you know, your Guy Fiery culinary genius types who like to show off in the kitchen.
-
-Whip up something quick, or create a savory, mouthwatering seven-course meal and wow the panties off your girlfriend (or boyfriend, if he wears panties).
-
-Includes:
-
-- 1 nearly brand new Ecopan skillet in immaculate condition
-  - https://ecopan-cookware.com/shop/fusion/24-cm-frypan-2/
-  - https://ecopan-cookware.com/product-category/fusion/
-  - https://ecopan-cookware.com/home-2-4/
-- 1 used Delimano skillet with clear glass lid (has some scratching on its nonstick surface but still very good for cooking meat and soups...I just wouldn't use it for eggs unless you like your eggs scrambled)
-- 1 large Scarlett stainless steel pot with clear glass lid in excellent condition
-- 5 stainless steel forks
-- 5 stainless steel butter knives
-- 8 stainless steel spoons
-- 2 clear pint glasses
-- 2 tall Saku beer glasses
-- 1 insulated LifeStraw water bottle/thermos, 24 oz/700 ml capacity
-- 8 ceramic coffee cups
-- 3 large ceramic plates
-- 2 small ceramic plates
-- 2 large ceramic serving bowls (green and beige)
-- 2 black and white ceramic bowls
-- 1 large plastic container with yellow lid
-- 1 small plastic container with green lid
-- 1 square glass bowl with clear plastic lid
-- 1 white plastic cup
-- 1 black plastic/silicone spatula (does show some wear and tear, but still has a ton of use left in it)
-- 1 red silicone spatula with wooden handle
-- 1 black plastic ladle 
-- 4 sharp stainless steel kitchen knives all in excellent condition (the one with the white handle is a little blunt and doesn't stay sharp as long as the others, but the others are quite sharp; I use the white handled knife most frequently unless I need to cut something that requires a really sharp knife, then I use any of the other three)
-- 1 blue glass Pyrex pan
-- 3 glass cleaners/scrub brushes
-
-![Kitchen set](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Kitchen-set-1.jpeg?raw=true)
-
-![Kitchen set](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Kitchen-set-2.jpeg?raw=true)
-
-![Kitchen set](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Kitchen-set-3.jpeg?raw=true)
-
-![Kitchen set](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Kitchen-set-4.jpeg?raw=true)
-
-![Kitchen set](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Kitchen-set-5.jpeg?raw=true)
-
-![Kitchen set](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Kitchen-set-6.jpeg?raw=true)
-
-![Kitchen set](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Kitchen-set-7.jpeg?raw=true)
-
-![Kitchen set](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Kitchen-set-8.jpeg?raw=true)
-
-![Kitchen set](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Kitchen-set-9.jpeg?raw=true)
-
-![Kitchen set](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Kitchen-set-10.jpeg?raw=true)
-
-![Kitchen set](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Kitchen-set-11.jpeg?raw=true)
-
-![Kitchen set](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Kitchen-set-12.jpeg?raw=true)
-
-![Kitchen set](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Kitchen-set-13.jpeg?raw=true)
-
-![Kitchen set](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Kitchen-set-14.jpeg?raw=true)
-
-#### If you're not already convinced that this is the best deal on FB Marketplace, I'll even throw in some basic spices, cooking oils and whatnot for free. Just ask if you want these thrown in!
-
-![Kitchen set](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Kitchen-set-15.jpeg?raw=true)
-
-#### The Ecopan Fusion information (probably still under warranty):
-
-https://ecopan-cookware.com/shop/fusion/24-cm-frypan-2/
-
-This pan retails for around €38 on its own, and is still in immaculate condition
-
-![Ecopan](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Ecopan-1.jpeg?raw=true)
-
-![Ecopan](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Ecopan-2.jpeg?raw=true)
-
-![Ecopan](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Ecopan-3.jpeg?raw=true)
-
-#### Everything is in excellent condition unless otherwise mentioned. Not greasy, dirty, chipped, scratched or stained. These 58 total items (if I can count correctly) were taken good care of and are ready to be added to your kitchen collection today! Only about €1 per item....woowwwwwww!!!!
-
-Click below for additional photos and to see other totally awesome and cool items for sale cheap!
-https://github.com/For-Sale-In-Tartu/for-sale/
-
-
 # Kingcamp sleeping bag
 
 Purchased in June 2023 from osta.ee. Only used a handful of times and not dirty at all. And I'm a clean person! I swear.
@@ -302,6 +208,97 @@ Free if you buy the kitchen set https://www.facebook.com/marketplace/item/154303
 ![Ice trays](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Ice-trays.jpeg?raw=true)
 
 
+# Amazing Kitchen Starter Kit
+
+### SOLD!
+
+~~Amazing Kitchen Starter Kit with just about anything you could ever want or need.~~
+
+~~€50 for everything~~
+
+~~Pick up in Emajõe, Tartu.~~
+
+~~Everything you need to not starve today. Hell, you can even become quite fat and happy with all these useful utensils.~~
+
+~~Perfect for lazy bachelors/bachelorettes or the super experienced in the kitchen...you know, your Guy Fiery culinary genius types who like to show off in the kitchen.~~
+
+~~Whip up something quick, or create a savory, mouthwatering seven-course meal and wow the panties off your girlfriend (or boyfriend, if he wears panties).~~
+
+~~Includes:~~
+
+~~- 1 nearly brand new Ecopan skillet in immaculate condition~~
+  ~~- https://ecopan-cookware.com/shop/fusion/24-cm-frypan-2/~~
+  ~~- https://ecopan-cookware.com/product-category/fusion/~~
+  ~~- https://ecopan-cookware.com/home-2-4/~~
+~~- 1 used Delimano skillet with clear glass lid (has some scratching on its nonstick surface but still very good for cooking meat and soups...I just wouldn't use it for eggs unless you like your eggs scrambled)~~
+~~- 1 large Scarlett stainless steel pot with clear glass lid in excellent condition~~
+~~- 5 stainless steel forks~~
+~~- 5 stainless steel butter knives~~
+~~- 8 stainless steel spoons~~
+~~- 2 clear pint glasses~~
+~~- 2 tall Saku beer glasses~~
+~~- 1 insulated LifeStraw water bottle/thermos, 24 oz/700 ml capacity~~
+~~- 8 ceramic coffee cups~~
+~~- 3 large ceramic plates~~
+~~- 2 small ceramic plates~~
+~~- 2 large ceramic serving bowls (green and beige)~~
+~~- 2 black and white ceramic bowls~~
+~~- 1 large plastic container with yellow lid~~
+~~- 1 small plastic container with green lid~~
+~~- 1 square glass bowl with clear plastic lid~~
+~~- 1 white plastic cup~~
+~~- 1 black plastic/silicone spatula (does show some wear and tear, but still has a ton of use left in it)~~
+~~- 1 red silicone spatula with wooden handle~~
+~~- 1 black plastic ladle~~
+~~- 4 sharp stainless steel kitchen knives all in excellent condition (the one with the white handle is a little blunt and doesn't stay sharp as long as the others, but the others are quite sharp; I use the white handled knife most frequently unless I need to cut something that requires a really sharp knife, then I use any of the other three)~~
+~~- 1 blue glass Pyrex pan~~
+~~- 3 glass cleaners/scrub brushes~~
+
+![Kitchen set](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Kitchen-set-1.jpeg?raw=true)
+
+![Kitchen set](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Kitchen-set-2.jpeg?raw=true)
+
+![Kitchen set](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Kitchen-set-3.jpeg?raw=true)
+
+![Kitchen set](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Kitchen-set-4.jpeg?raw=true)
+
+![Kitchen set](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Kitchen-set-5.jpeg?raw=true)
+
+![Kitchen set](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Kitchen-set-6.jpeg?raw=true)
+
+![Kitchen set](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Kitchen-set-7.jpeg?raw=true)
+
+![Kitchen set](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Kitchen-set-8.jpeg?raw=true)
+
+![Kitchen set](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Kitchen-set-9.jpeg?raw=true)
+
+![Kitchen set](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Kitchen-set-10.jpeg?raw=true)
+
+![Kitchen set](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Kitchen-set-11.jpeg?raw=true)
+
+![Kitchen set](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Kitchen-set-12.jpeg?raw=true)
+
+![Kitchen set](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Kitchen-set-13.jpeg?raw=true)
+
+![Kitchen set](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Kitchen-set-14.jpeg?raw=true)
+
+#### ~~If you're not already convinced that this is the best deal on FB Marketplace, I'll even throw in some basic spices, cooking oils and whatnot for free. Just ask if you want these thrown in!~~
+
+![Kitchen set](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Kitchen-set-15.jpeg?raw=true)
+
+#### ~~The Ecopan Fusion information (probably still under warranty):~~
+
+~~https://ecopan-cookware.com/shop/fusion/24-cm-frypan-2/~~
+
+~~This pan retails for around €38 on its own, and is still in immaculate condition~~
+
+![Ecopan](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Ecopan-1.jpeg?raw=true)
+
+![Ecopan](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Ecopan-2.jpeg?raw=true)
+
+![Ecopan](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Ecopan-3.jpeg?raw=true)
+
+#### ~~Everything is in excellent condition unless otherwise mentioned. Not greasy, dirty, chipped, scratched or stained. These 58 total items (if I can count correctly) were taken good care of and are ready to be added to your kitchen collection today! Only about €1 per item....woowwwwwww!!!!~~
 
 
 # Jordan Peterson books
