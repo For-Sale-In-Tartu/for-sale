@@ -56,7 +56,7 @@ P0rn was never browsed using this keyboard. But nobody's judging if you decide t
 
 # Kinesis Freestyle 2 Keyboard, US layout
 
-Are you sick and tired of the weirdly shaped Enter key on Nordic keyboards? Is the tiny left shift key chapping your caboose?
+Are you sick and tired of the weirdly shaped Enter key on Nordic keyboards? Is the tiny left Shift key chapping your caboose?
 
 Well then do I have the solution for you!
 
