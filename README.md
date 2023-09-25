@@ -407,21 +407,21 @@ Free if you buy the kitchen set https://www.facebook.com/marketplace/item/154303
 
 
 # Leather jacket 250€
-#### Purchased brand new in New York
-#### Kept in pristine condition
-#### Buy this jacket and they'll let you star in Top Gun 2
+#### ~~Purchased brand new in New York~~
+#### ~~Kept in pristine condition~~
+#### ~~Buy this jacket and they'll let you star in Top Gun 2~~
 ![leather jacket](https://github.com/For-Sale-In-Tartu/for-sale/blob/e1cc656bb4f3ec0586393cef110ebb45631567bd/for-sale-item-photos/jacket-12.jpg?raw=true)
-#### Like new
-#### Barely used
-#### Still has the tags
+#### ~~Like new~~
+#### ~~Barely used~~
+#### ~~Still has the tags~~
 ![leather jacket](https://github.com/For-Sale-In-Tartu/for-sale/blob/e1cc656bb4f3ec0586393cef110ebb45631567bd/for-sale-item-photos/jacket-11.jpg?raw=true)
-#### This jacket is the real deal. So heavy and warm.
+#### ~~This jacket is the real deal. So heavy and warm.~~
 ![leather jacket](https://github.com/For-Sale-In-Tartu/for-sale/blob/e1cc656bb4f3ec0586393cef110ebb45631567bd/for-sale-item-photos/jacket-10.jpg?raw=true)
-#### Soft, smooth, supple genuine cow leather. Accept no imitations
+#### ~~Soft, smooth, supple genuine cow leather. Accept no imitations~~
 ![leather jacket](https://github.com/For-Sale-In-Tartu/for-sale/blob/e1cc656bb4f3ec0586393cef110ebb45631567bd/for-sale-item-photos/jacket-7.jpg?raw=true)
-#### Chicks dig guys in leather...whoa baby
+#### ~~Chicks dig guys in leather...whoa baby~~
 ![leather jacket](https://github.com/For-Sale-In-Tartu/for-sale/blob/e1cc656bb4f3ec0586393cef110ebb45631567bd/for-sale-item-photos/jacket-6.jpg?raw=true)
-#### So sexy
+#### ~~So sexy~~
 ![leather jacket](https://github.com/For-Sale-In-Tartu/for-sale/blob/e1cc656bb4f3ec0586393cef110ebb45631567bd/for-sale-item-photos/jacket-5.jpg?raw=true)
 ![leather jacket](https://github.com/For-Sale-In-Tartu/for-sale/blob/e1cc656bb4f3ec0586393cef110ebb45631567bd/for-sale-item-photos/jacket-8.jpg?raw=true)
 ![leather jacket](https://github.com/For-Sale-In-Tartu/for-sale/blob/e1cc656bb4f3ec0586393cef110ebb45631567bd/for-sale-item-photos/jacket-9.jpg?raw=true)
@@ -432,21 +432,22 @@ Free if you buy the kitchen set https://www.facebook.com/marketplace/item/154303
 
 
 # Mask 1€
-#### Never used, obviously
-because buying someone's used mask...that would be gross
+#### ~~Never used, obviously~~
+~~because buying someone's used mask...that would be gross~~
 ![face diaper](https://github.com/For-Sale-In-Tartu/for-sale/blob/49d835549d9eb171fea3cc40a3bf8c0990a34cf7/for-sale-item-photos/mask-1.jpg?raw=true)
-#### Buy this mask today and never die from kovid again
+#### ~~Buy this mask today and never die from kovid again~~
 ![obedience mask](https://github.com/For-Sale-In-Tartu/for-sale/blob/49d835549d9eb171fea3cc40a3bf8c0990a34cf7/for-sale-item-photos/mask-2.jpg?raw=true)
-#### Buy this mask and you'll get a free gift
+#### ~~Buy this mask and you'll get a free gift~~
 ![kovid sucks](https://github.com/For-Sale-In-Tartu/for-sale/blob/e1cc656bb4f3ec0586393cef110ebb45631567bd/for-sale-item-photos/bioblock-1.jpg?raw=true)
 ![kovid sucks](https://github.com/For-Sale-In-Tartu/for-sale/blob/e1cc656bb4f3ec0586393cef110ebb45631567bd/for-sale-item-photos/bioblock-2.jpg?raw=true)
 ![kovid sucks](https://github.com/For-Sale-In-Tartu/for-sale/blob/e1cc656bb4f3ec0586393cef110ebb45631567bd/for-sale-item-photos/bioblock-3.jpg?raw=true)
 ![kovid sucks](https://github.com/For-Sale-In-Tartu/for-sale/blob/e1cc656bb4f3ec0586393cef110ebb45631567bd/for-sale-item-photos/bioblock-4.jpg?raw=true)
-#### And if you do die from kovid, I'll refund 110% of the purchase price! Woah!
+#### ~~And if you do die from kovid, I'll refund 110% of the purchase price! Woah!~~
 
 
 # HDMI cable 5€
-#### Buy this so you can stream Viimne reliikvia and quote every. single. line. in this movie. Every one.
+### SOLD!
+#### ~~Buy this so you can stream Viimne reliikvia and quote every. single. line. in this movie. Every one.~~
 ![HDMI cable](https://github.com/For-Sale-In-Tartu/for-sale/blob/c54d9d4ea9d6008b911056c72cbefe17059fe2b3/for-sale-item-photos/HDMI-cable.jpg?raw=true)
 
 
