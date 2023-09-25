@@ -4,41 +4,6 @@
 ### Check back often for new items for sale
 
 
-# Kingcamp sleeping bag
-
-Purchased in June 2023 from osta.ee. Only used a handful of times and not dirty at all. And I'm a clean person! I swear.
-
-It's a three-season sleeping bag, so obviously it isn't warm enough to sleep outside in when it's -20°. But if that's your thing, maybe you should seek psychological help.
-
-Bottom zips open so you can let your smelly feet air out while keeping the rest of your body warm.
-
-Also comes with a stuff sack as shown in the photos.
-
-Purchased for around €20-25 including shipping, but can be yours for the low, low price of €10. That's over a 50% discount, you cheap b@stards.
-
-Sex never took place in this sleeping bag (I'm saving myself for marriage if you must know).
-
-Retail price is in the €35 range.
-
-https://www.amazon.co.uk/KingCamp-Sleeping-Compression-Colours-sleep-bags/dp/B01EFTA3E4
-
-https://www.kingcampoutdoors.com/collections/sleeping-bags/products/joinable-3-season-envelope-sleeping-bag-1?variant=42287289204973
-
-![Kingcamp sleeping bag](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Sleeping-bag-1.jpeg?raw=true)
-
-![Kingcamp sleeping bag](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Sleeping-bag-2.jpeg?raw=true)
-
-![Kingcamp sleeping bag](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Sleeping-bag-3.jpeg?raw=true)
-
-![Kingcamp sleeping bag](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Sleeping-bag-4.jpeg?raw=true)
-
-![Kingcamp sleeping bag](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Sleeping-bag-5.jpeg?raw=true)
-
-![Kingcamp sleeping bag](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Sleeping-bag-6.jpeg?raw=true)
-
-![Kingcamp sleeping bag](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Sleeping-bag-7.jpeg?raw=true)
-
-
 # HP USB Business Slim Smartcard Keyboard, Nordic layout
 
 Very clean and in excellent condition, every key is perfect. Will help you type faster, become more attractive to the opposite (or same) sex and just be a better human being overall.
@@ -187,6 +152,44 @@ Ice not included. Make your own damn ice.
 Free if you buy the kitchen set https://www.facebook.com/marketplace/item/1543035263105500/ or https://github.com/For-Sale-In-Tartu/for-sale/tree/main#amazing-kitchen-starter-kit
 
 ![Ice trays](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Ice-trays.jpeg?raw=true)
+
+
+# Kingcamp sleeping bag
+
+### SOLD!
+
+~~Purchased in June 2023 from osta.ee. Only used a handful of times and not dirty at all. And I'm a clean person! I swear.~~
+
+~~It's a three-season sleeping bag, so obviously it isn't warm enough to sleep outside in when it's -20°. But if that's your thing, maybe you should seek psychological help.~~
+
+~~Bottom zips open so you can let your smelly feet air out while keeping the rest of your body warm.~~
+
+~~Also comes with a stuff sack as shown in the photos.~~
+
+~~Purchased for around €20-25 including shipping, but can be yours for the low, low price of €10. That's over a 50% discount, you cheap b@stards.~~
+
+~~Sex never took place in this sleeping bag (I'm saving myself for marriage if you must know).~~
+
+~~Retail price is in the €35 range.~~
+
+~~https://www.amazon.co.uk/KingCamp-Sleeping-Compression-Colours-sleep-bags/dp/B01EFTA3E4~~
+
+~~https://www.kingcampoutdoors.com/collections/sleeping-bags/products/joinable-3-season-envelope-sleeping-bag-1?variant=42287289204973~~
+
+![Kingcamp sleeping bag](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Sleeping-bag-1.jpeg?raw=true)
+
+![Kingcamp sleeping bag](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Sleeping-bag-2.jpeg?raw=true)
+
+![Kingcamp sleeping bag](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Sleeping-bag-3.jpeg?raw=true)
+
+![Kingcamp sleeping bag](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Sleeping-bag-4.jpeg?raw=true)
+
+![Kingcamp sleeping bag](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Sleeping-bag-5.jpeg?raw=true)
+
+![Kingcamp sleeping bag](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Sleeping-bag-6.jpeg?raw=true)
+
+![Kingcamp sleeping bag](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Sleeping-bag-7.jpeg?raw=true)
+
 
 
 # Logitech Marathon M705 Wireless Mouse
