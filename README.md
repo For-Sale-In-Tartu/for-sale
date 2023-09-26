@@ -82,6 +82,8 @@ https://www.apple.com/shop/product/MC556LL/B/apple-85w-magsafe-power-adapter-for
 
 # Power strips (surge protectors)
 
+### SOLD!
+
 ~~Black:~~
 ~~- 1.8 m long~~
 ~~- 4 outlets~~
@@ -92,11 +94,11 @@ https://www.apple.com/shop/product/MC556LL/B/apple-85w-magsafe-power-adapter-for
 
 ![Surge protector power strip](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Surge-protector-power-strip-2.jpeg?raw=true)
 
-White #1:
-- Approximately 1.8 m long
-- 6 outlets
-- Power switch
-- €4
+~~White #1:~~
+~~- Approximately 1.8 m long~~
+~~- 6 outlets~~
+~~- Power switch~~
+~~- €4~~
 
 ![Surge protector power strip](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Surge-protector-power-strip-3.jpeg?raw=true)
 
