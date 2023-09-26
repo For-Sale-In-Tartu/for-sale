@@ -8,7 +8,7 @@
 
 Very clean and in excellent condition, every key is perfect. Will help you type faster, become more attractive to the opposite (or same) sex and just be a better human being overall.
 
-Retails for about $45, but can be yours for the low, low price of €10.
+Retails for about $45, but can be yours for the low, low price of €5.
 
 https://www.amazon.com/USB-Slim-Ccid-Smartcard-Kyd/dp/B06WRN6RTM
 
@@ -27,7 +27,7 @@ Well then do I have the solution for you!
 
 Presenting the coolest, most ergonomical keyboard you'll ever have typed an email or harassed people on Reddit with. Typing with your arms shoulder width apart rather than cramped together like "normal" keyboards is much more ergonimical, attractive and good for your self-esteem.
 
-Retails for about $89, but can be yours for the low, low price of €10.
+Retails for about $89, but can be yours for the low, low price of €5.
 
 https://www.amazon.com/Freestyle2-Ergonomic-Keyboard-Standard-Separation/dp/B00CMALD3E
 
@@ -54,7 +54,7 @@ This charger is gently used. It says it's a 60-watt MagSafe power adapter. I use
 
 Excellent condition
 
-€20
+€10
 
 Note: it has a US power adapter, which means you have three options: 
 1. Swap out the US power adapter for an EU version
@@ -78,34 +78,6 @@ https://www.apple.com/shop/product/MC556LL/B/apple-85w-magsafe-power-adapter-for
 ![MacBook charger](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/MacBook-Pro-charger-5.jpeg?raw=true)
 
 ![MacBook charger](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/MacBook-Pro-charger-6.jpeg?raw=true)
-
-
-
-# Fabulous Gold Sequin Top Hat
-
-Do you want to look fabulous all the goddamn time?! Well then do I have the perfect item for you!
-
-Look no further for the most badass top hat you've ever seen.
-
-Put this on and you'll appear taller, slimmer, stronger, sexier, more attractive to the opposite (or same, it's 2023 after all) sex, your bank account will be larger, your boss/advisor will like you more, food will taste better, it dispels negative energy. In short, it's the perfect accessory for any outfit.
-
-Also, Halloween is coming up and it's perfect for that sexy outfit you've been planning.
-
-Only worn a couple of times.
-
-Goes for €10-20 on Amazon, but it can be yours for the low, low price of €2.
-
-https://www.amazon.com/gold-sequin-top-hat/s?k=gold+sequin+top+hat
-
-Or I'll throw it in free if you buy kitchen stuff or a mouse ~~an office chair or bike~~. Woowwwwwwww!
-
-![Gold sequin top hat](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Hat-1.jpeg?raw=true)
-
-![Gold sequin top hat](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Hat-2.jpeg?raw=true)
-
-![Gold sequin top hat](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Hat-3.jpeg?raw=true)
-
-![Gold sequin top hat](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Hat-4.jpeg?raw=true)
 
 
 # Power strips (surge protectors)
@@ -143,15 +115,46 @@ White #1:
 
 # The coolest ice trays in the world
 
-If you buy these ice trays, women (or men) will love you. They'll always show up to your parties. And your BMI will be lower. True story.
+### Gone
 
-Ice not included. Make your own damn ice.
+~~If you buy these ice trays, women (or men) will love you. They'll always show up to your parties. And your BMI will be lower. True story.~~
 
-€1
+~~Ice not included. Make your own damn ice.~~
 
-Free if you buy the kitchen set https://www.facebook.com/marketplace/item/1543035263105500/ or https://github.com/For-Sale-In-Tartu/for-sale/tree/main#amazing-kitchen-starter-kit
+~~€1~~
+
+~~Free if you buy the kitchen set https://www.facebook.com/marketplace/item/1543035263105500/ or https://github.com/For-Sale-In-Tartu/for-sale/tree/main#amazing-kitchen-starter-kit~~
 
 ![Ice trays](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Ice-trays.jpeg?raw=true)
+
+
+# Fabulous Gold Sequin Top Hat
+
+### Gone
+
+~~Do you want to look fabulous all the goddamn time?! Well then do I have the perfect item for you!~~
+
+~~Look no further for the most badass top hat you've ever seen.~~
+
+~~Put this on and you'll appear taller, slimmer, stronger, sexier, more attractive to the opposite (or same, it's 2023 after all) sex, your bank account will be larger, your boss/advisor will like you more, food will taste better, it dispels negative energy. In short, it's the perfect accessory for any outfit.~~
+
+~~Also, Halloween is coming up and it's perfect for that sexy outfit you've been planning.~~
+
+~~Only worn a couple of times.~~
+
+~~Goes for €10-20 on Amazon, but it can be yours for the low, low price of €2.~~
+
+~~https://www.amazon.com/gold-sequin-top-hat/s?k=gold+sequin+top+hat~~
+
+~~Or I'll throw it in free if you buy kitchen stuff or a mouse ~~an office chair or bike~~. Woowwwwwwww!~~
+
+![Gold sequin top hat](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Hat-1.jpeg?raw=true)
+
+![Gold sequin top hat](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Hat-2.jpeg?raw=true)
+
+![Gold sequin top hat](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Hat-3.jpeg?raw=true)
+
+![Gold sequin top hat](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Hat-4.jpeg?raw=true)
 
 
 # Kingcamp sleeping bag
