@@ -130,11 +130,11 @@ White #1:
 
 ![Surge protector power strip](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Surge-protector-power-strip-4.jpeg?raw=true)
 
-White #2:
-- Really long power cord, possibly 10 m long (don't know exactly, but it's really long)
-- 5 outlets
-- No power switch
-- €3
+~~White #2:~~
+~~- Really long power cord, possibly 10 m long (don't know exactly, but it's really long)~~
+~~- 5 outlets~~
+~~- No power switch~~
+~~- €3~~
 
 ![Surge protector power strip](https://github.com/For-Sale-In-Tartu/for-sale/blob/main/for-sale-item-photos/Surge-protector-power-strip-5.jpeg?raw=true)
 
